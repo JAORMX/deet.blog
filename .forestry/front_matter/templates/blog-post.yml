@@ -21,3 +21,5 @@ fields:
   label: type
   hidden: false
   default: post
+pages:
+- content/posts/day-3.md
