@@ -17,7 +17,7 @@ google_tag_manager = ""
 home = "Home"
 logo = "images/logo.png"
 [params.banner]
-bgImage = "images/banner/banner-bg.svg"
+bgImage = "images/banner/Deeetsyyy.png"
 image = ""
 title = "This is a blog about Deet's new life in Finland! In case you haven't figured it out yet, Deet is our dog."
 [params.cta]
@@ -29,6 +29,8 @@ title = "Get the best hugo templates"
 enable = false
 label = "Visit Here"
 link = "https://gethugothemes.com/shop/"
+[[params.plugins.css]]
+link = "css/custom.css"
 [[params.plugins.css]]
 link = "plugins/bootstrap/bootstrap.min.css"
 [[params.plugins.css]]
