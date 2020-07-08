@@ -9,10 +9,18 @@ sections:
   label: Posts
   create: documents
   match: "**/*"
+- type: heading
+  label: Authors
 - type: directory
   path: content/author
   label: Author
   create: all
+  match: "**/*"
+- type: heading
+  label: Deet
+- type: document
+  path: content/about.md
+  label: About Deet
   match: "**/*"
 - type: heading
   label: Front page
