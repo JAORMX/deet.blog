@@ -8,7 +8,7 @@ title = "Deet's blog"
 [outputs]
 home = ["HTML", "AMP", "RSS", "JSON"]
 [params]
-author = "Themefisher"
+author = "Juan Antonio Osorio Robles"
 contact_form_action = "#"
 copyright = "&copy; 2020 Ozz &amp; Mirkka All Rights Reserved"
 description = "This is meta description"
