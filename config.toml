@@ -1,4 +1,4 @@
-baseURL = "https://blog-deet-dog.onrender.com/"
+baseURL = "https://blog.deet.dog/"
 disqusShortname = ""
 languageCode = "en-us"
 paginate = "5"
