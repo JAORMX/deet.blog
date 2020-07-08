@@ -80,9 +80,9 @@ enable = true
 
 ####################### banner #######################################
 [params.banner]
-bgImage = "images/banner/banner-bg.svg"
+bgImage = "images/banner/banner.png"
 title = "This is a blog about Deet's new life in Finland! In case you haven't figured it out yet, Deet is our dog."
-image = "images/"
+image = ""
 
 
 ######################## call to action ###############################
