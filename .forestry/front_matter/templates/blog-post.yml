@@ -8,12 +8,16 @@ fields:
 - type: datetime
   name: date
   label: date
+  default: now
 - type: list
   name: categories
   label: categories
 - type: text
   name: author
   label: author
+  default: mirkka and ozz
 - type: text
   name: type
   label: type
+  hidden: false
+  default: post
