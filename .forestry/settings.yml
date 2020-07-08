@@ -17,9 +17,8 @@ sections:
 - type: heading
   label: Front page
 - type: document
-  path: _index.md
+  path: content/_index.md
   label: Front page
-  match: "**/*"
 - type: heading
   label: Configuration
 - type: document
