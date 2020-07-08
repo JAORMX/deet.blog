@@ -65,8 +65,3 @@ weight = 2
 URL = "contact"
 name = "Contact"
 weight = 1
-
-[[menu.footer]]
-URL = "tools"
-name = "tools"
-weight = 2
