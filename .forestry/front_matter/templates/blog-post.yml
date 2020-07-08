@@ -8,12 +8,6 @@ fields:
 - type: datetime
   name: date
   label: date
-- type: file
-  name: image
-  label: image
-- type: text
-  name: description
-  label: description
 - type: list
   name: categories
   label: categories
