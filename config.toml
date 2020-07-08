@@ -17,7 +17,7 @@ google_tag_manager = ""
 home = "Home"
 logo = "images/logo.png"
 [params.banner]
-bgImage = "images/banner/banner.png"
+bgImage = "images/banner/banner-bg.svg"
 image = ""
 title = "This is a blog about Deet's new life in Finland! In case you haven't figured it out yet, Deet is our dog."
 [params.cta]
