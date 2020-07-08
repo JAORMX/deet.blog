@@ -1,7 +1,9 @@
 +++
-title = "Mirkka and Ozz"
-image = "/images/family.jpg"
 description = "Dog owners"
-+++
+image = "/images/family.jpg"
+title = "Mirkka and Ozz"
 
-Lorem ipsum dolor sit amet, consectetur adipiscing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua. Ut enim ad minim veniam, quis nostrud exercitation ullamco laboris nisi ut aliquip ex ea commodo consequat. Duis aute irure dolor in reprehenderit in voluptate velit esse cillum dolore eu fugiat nulla pariatur. Excepteur sint occaecat cupidatat non proident, sunt in culpa qui officia deserunt mollit anim id est laborum.
++++
+As some of you probably know, we're a Finnish-Mexican couple who met through our love of heavy metal and weirdness. As time passed, we started to grow a love for plants and figured out we both like dogs!
+
+With the stray dog situation as it is in many countries, we thought that the ethical thing to do would be to get a rescue dog. So we contacted Kulkurit, and with their help and following their process is how we added our newest furry member to te family: Deet!
