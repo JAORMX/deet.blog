@@ -5,6 +5,18 @@ paginate = "5"
 summaryLength = "10"
 theme = "northernlab-hugo"
 title = "Deet's blog"
+[[menu.footer]]
+URL = "contact"
+name = "Contact"
+weight = 1
+[[menu.main]]
+URL = "about"
+name = "Deet"
+weight = 1
+[[menu.main]]
+URL = "author/mirkka-and-ozz"
+name = "Authors"
+weight = 2
 [outputs]
 home = ["HTML", "AMP", "RSS", "JSON"]
 [params]
@@ -19,7 +31,7 @@ logo = "images/logo.png"
 [params.banner]
 bgImage = "images/banner/Deeetsyyy.png"
 image = ""
-title = "This is a blog about Deet's new life in Finland! In case you haven't figured it out yet, Deet is our dog."
+title = "Hi! I'm Deet! I'm a rescue dog from Romania living a new life in Finland. Welcome to my journey in this new country with my new family."
 [params.cta]
 description = "Fusce condimentum nunc ac nisi vulputate fringilla. Donec lacinia congue felis in faucibus."
 enable = false
@@ -50,18 +62,3 @@ enable = true
 preloader = ""
 [params.search]
 enable = true
-[[menu.main]]
-URL = "about"
-name = "Deet"
-weight = 1
-
-[[menu.main]]
-URL = "author/mirkka-and-ozz"
-name = "Authors"
-weight = 2
-
-# footer menu
-[[menu.footer]]
-URL = "contact"
-name = "Contact"
-weight = 1
