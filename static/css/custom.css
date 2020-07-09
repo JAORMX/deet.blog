@@ -5,3 +5,11 @@
 .banner h1 {
     font-size: 45px;
 }
+
+.content li {
+  list-style: circle inside !important;
+}
+
+.content ul li::before {
+  content: "" !important;
+}
