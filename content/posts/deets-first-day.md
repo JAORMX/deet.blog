@@ -24,9 +24,11 @@ Milestones today:
 * We were able to wash her.
 * She charmed us with her smile in the evening!
 
-  ***
+***
 
-  We arrived in the morning to the pick-up spot and we waited for the dogs to arrive. Due to the excitement, the appetite wasn't the best in the morning but we tried to have some snacks while waiting. The car was on time, which is incredible considering the time and the length they traveled with almost 40 dogs.
+
+We arrived in the morning to the pick-up spot and we waited for the dogs to arrive. Due to the excitement, the appetite wasn't the best in the morning but we tried to have some snacks while waiting. The car was on time, which is incredible considering the time and the length they traveled with almost 40 dogs.
+
 
 ![Having a breakfast at the pickup spot while waiting for Deet to arrive](https://app.forestry.io/sites/pqtrwwknkydruw/body-media//images/deets-first-day/mirkka-ozz-waiting.jpg "Breakfast")
 
