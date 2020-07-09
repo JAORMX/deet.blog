@@ -18,6 +18,7 @@ Milestones today:
 
 * We discovered that Deet loves chicken
 * Deet was way more active in the house following chicken pieces
+* Smiles, smiles and smiles
 
 ***
 
