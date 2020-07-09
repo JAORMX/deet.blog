@@ -11,6 +11,7 @@ fields:
   default: now
   config:
     date_format: DD/MM/YYYY
+    export_format: DD/MM/YYYY h:mm A ZZ
 - type: list
   name: categories
   label: categories
