@@ -9,7 +9,7 @@ type = "post"
 +++
 ## Waiting for Deet
 
-{{< figure src="/images/20200701_184025.jpg" caption="Deet's stuff!" >}}
+{{< figure src="whatsapp-image-2020-07-09-at-12-16-15.jpeg" >}}
 
 The adoption process was everything else than a normal case. The Covid-19 was slowing down dog delivery because the countries shut down and closed their borders, and nobody knew when things would get better and the dogs would be able to travel to Finland.
 
