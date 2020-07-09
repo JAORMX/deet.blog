@@ -1,5 +1,7 @@
 ---
-title: ""
-featured_image: '/images/happy-deet.jpg'
-description: "This is a blog about Deet's new life in Finland! In case you haven't figured it out yet, Deet is our dog."
+title: ''
+featured_image: "/images/happy-deet.jpg"
+description: Hi! I'm Deet! I'm a rescue dog from Romania living a new life in Finland.
+  Welcome to my journey in this new country with my new family.
+
 ---
