@@ -29,7 +29,7 @@ As mentioned in the previous blog post, in the morning Deet was shy and stayed i
 
 This was the first morning where we got worried and a little sad that she wasn’t coming out of her crate and seemed very scared. So we decided to give her space.
 
-{{< figure src="" caption="Sad Deet" >}}
+{{< figure src="/images/whatsapp-image-2020-07-09-at-13-11-14.jpeg" caption="Sad Deet" >}}
 
 Our amazing contact from Kulkurit asked how we were doing and advised us to try giving her treats of boiled chicken. So we gave that a try, and… Jackpot!
 
