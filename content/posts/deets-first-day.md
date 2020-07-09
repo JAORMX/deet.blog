@@ -1,6 +1,6 @@
 ---
 title: Deets First Day
-date: 2020-07-06T12:55:16.000+03:00
+date: 2020-07-04T12:55:16+03:00
 image: images/deets-first-day/happy-deet.jpg
 description: It was an exciting and emotional day for Deet and us
 categories:
