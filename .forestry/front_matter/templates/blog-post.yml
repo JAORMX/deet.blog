@@ -22,5 +22,6 @@ fields:
   hidden: false
   default: post
 pages:
+- content/posts/Before the dog arrives.md
 - content/posts/day-3.md
 - content/posts/day-4-night-adventurer.md
