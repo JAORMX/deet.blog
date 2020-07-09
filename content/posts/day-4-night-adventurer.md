@@ -3,7 +3,6 @@ author = "mirkka and ozz"
 categories = ["Dog", "Deet"]
 date = 2020-07-07T13:19:11Z
 description = ""
-draft = true
 title = "Day 4: Night adventurer"
 type = "post"
 
@@ -39,10 +38,10 @@ After these little steps, she basically stayed in her crate. This made us think 
 
 However, it was very soon obvious that she was not sick. Five minutes after turning off the lights, Deet was having the greatest adventure of her life. This was a very positive thing to see and her energy and curiosity are amazing features when she gains a bit bravery.  Of course, we hope that with time her schedule will turn normal. Apparently we and the world are just too scary to handle during the day.
 
-{{< figure src="/images/20200707_174145.jpg"_ caption="Deet resting" >}}
+{{< figure src="/images/20200708_042139.jpg"caption_="Deet eating a bone around 4 am._" >}}
 
 Another positive insight: In the day time we have hidden treats around the apartment and that has been the only way to get her out of the crate.
 
 Apparently, it has made her more confident even if she doesn’t show it during the day. During the nights she is able to go to the same spots where she has found a treat during the day. So little success with that!
 
-Night adventurer
+Night adventurer <3
