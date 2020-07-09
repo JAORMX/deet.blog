@@ -7,7 +7,7 @@ categories:
 - dog
 type: post
 draft: true
-
+description: ""
 ---
 Today Deet was a little more afraid of everything and stayed mostly in her safe place. I'm guessing it now sank in that she's in a new environment, and the new sounds stuff around here must be terrifying. However, at night the world became a calmer and more exciting place for her.
 
