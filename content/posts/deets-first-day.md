@@ -12,7 +12,7 @@ type: post
 ---
 ### The main day!
 
-After months of waiting the day was finally here. We went to pick up Deet! Must say that it has been maybe the most exciting day in our journey so far and after all misfortune there was this year, this day felt somehow very special.
+After months of waiting the day was finally here. We went to pick up Deet! Must say that it has been maybe the most exciting day in our journey so far and after all misfortune, there was this year because of the pandemics and all, this day felt somehow very special.
 
 ***
 
@@ -26,7 +26,7 @@ Milestones today:
 
   ***
 
-  We arrived in the morning to the pick-up spot and we waited for the dogs to arrive. Due to the excitement, the appetite wasn't the best in the morning but we tried to have some snacks while waiting.
+  We arrived in the morning to the pick-up spot and we waited for the dogs to arrive. Due to the excitement, the appetite wasn't the best in the morning but we tried to have some snacks while waiting. The car was on time, which is incredible considering the time and the length they traveled with almost 40 dogs. 
 
 ![Having a breakfast at the pickup spot while waiting for Deet to arrive](https://app.forestry.io/sites/pqtrwwknkydruw/body-media//images/deets-first-day/mirkka-ozz-waiting.jpg "Breakfast")
 
@@ -70,4 +70,4 @@ Tips: Aroma-dog toy was a huge success! It has a calming aroma that calms down t
 
 #### Smile before sleeping
 
-The big day was about to end. But, before sleeping, Deet got some positive energy and gave us a little example of how charming and adorable dog she is when she has relaxed a little. 
+The big day was about to end. But, before sleeping, Deet got some positive energy and gave us a little example of how charming and adorable dog she is when she has relaxed a little.
