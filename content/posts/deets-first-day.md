@@ -36,7 +36,7 @@ The morning was full of excitement! People all over Finland came to pick up thei
 
 Waiting for your dog to arrive is an emotional cocktail: excitement, happiness, nervousness, worry and relief, and plenty of other feelings.
 
-Deet was the last dog in the first group. When she arrived she was tired, scared and yeah, a little bit smelly as well. It's a very heart-melting moment, and it clarifies to you one straight goal: I am going to give her the best home ever!  
+Deet was the last dog in the first group. When she arrived she was tired, scared and yeah, a little bit smelly as well. It's a very heart-melting moment, and it clarifies to you one straight goal: I am going to give her the best home ever!
 
 ![](/images/deet-arrive-copy.png)
 
@@ -60,10 +60,14 @@ So we decided to carry her. Notice: About 10 kg heavy dog which is totally froze
 
 After a long car trip, anybody would be tired. When you add an extremely new environment and stress to the mix, it's the most important to have your basic needs filled and in check before anything else.
 
-We were fortunate that Deet was very calm and everything went very well. She did her business, ate, and subsequently took a long nap. So we can call that a success!
+We were fortunate that Deet was very calm and everything went very well. She did her business, ate, and subsequently took a long nap. So we can call that a success!![](/images/summary-deet.png)
 
 We're not saying that she was in the most chill mood, nor that she was thrilled. We noticed she was scared and confused; which is completely understandable given the situation. So we tried to be extra slow and careful to try to make the process as easy as possible.
 
-Tips: Aroma-dog toy was a huge success! It has a calming aroma that calms down the dog's anxiety and stress. It was the first thing Deet took into her crate and she has slept with it since that. 
+Tips: Aroma-dog toy was a huge success! It has a calming aroma that calms down the dog's anxiety and stress. It was the first thing Deet took into her crate and she has slept with it since that.
 
 ![All good: safe spot and aroma toy are found!](/images/1st-day-deet-and-the-aroma-bunny.jpg "Deet in the crate")
+
+#### Smile before sleeping
+
+The big day was about to end. But, before sleeping, Deet got some positive energy and gave us a little example of how charming and adorable dog she is when she has relaxed a little. 
