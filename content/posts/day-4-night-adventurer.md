@@ -5,7 +5,7 @@ date = 2020-07-07T13:19:11Z
 draft = true
 title = "Day 4: Night adventurer"
 type = "post"
-
+description = ""
 +++
 This day was worrying. Deet stayed in her crate almost all of the day and in the evening she looked like she had no energy AT ALL. This made us think if she was sick or something. We contacted our contact person of Kulkurit in the evening and she said it’s probably just tiredness but let’s wait over the night and see how she is in the morning.
 

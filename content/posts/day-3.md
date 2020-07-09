@@ -5,7 +5,7 @@ date = 2020-07-06T13:17:50Z
 draft = true
 title = "Day 3"
 type = "post"
-
+description = ""
 +++
 In the morning Deet was shy and stayed in the crate. However, we noticed some signs that she had been active at night:
 
