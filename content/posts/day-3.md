@@ -17,7 +17,7 @@ Today we discovered that our little Deet has a strong love for chicken!
 Milestones today:
 
 * We discovered that Deet loves chicken
-* Deet was a little more active in the house following chicken pieces
+* Deet was way more active in the house following chicken pieces
 
 ***
 
@@ -38,3 +38,5 @@ Our amazing contact from Kulkurit asked how we were doing and advised us to try 
 She changed from night to day!
 
 First, we just gave her some treats in front of her crate. This cheered her up and she started approaching us more. At some point, we thought it was enough and decided to give her space again. However, Deet had something else in her mind… she was curious and wanted more of that tasty chicken!
+
+This helped her explore our apartment a lot more than before, which made us very happy and excited for her.
