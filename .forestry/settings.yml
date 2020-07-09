@@ -22,11 +22,6 @@ sections:
   path: content/about.md
   label: About Deet
 - type: heading
-  label: Front page
-- type: document
-  path: content/_index.md
-  label: Front page
-- type: heading
   label: Configuration
 - type: document
   path: config.toml
