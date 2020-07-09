@@ -29,11 +29,11 @@ As mentioned in the previous blog post, in the morning Deet was shy and stayed i
 
 This was the first morning where we got worried and a little sad that she wasn’t coming out of her crate and seemed very scared. So we decided to give her space.
 
-\** sad deet picture **
+{{< figure src="" caption="Sad Deet" >}}
 
 Our amazing contact from Kulkurit asked how we were doing and advised us to try giving her treats of boiled chicken. So we gave that a try, and… Jackpot!
 
-\** Happy deet picture **
+{{< figure src="" caption="Happy Deet" >}}
 
 She changed from night to day!
 
