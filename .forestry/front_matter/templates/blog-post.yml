@@ -21,6 +21,15 @@ fields:
   label: type
   hidden: false
   default: post
+- name: description
+  type: textarea
+  default: ''
+  config:
+    required: false
+    wysiwyg: false
+    schema:
+      format: markdown
+  label: description
 pages:
 - content/posts/Before the dog arrives.md
 - content/posts/day-3.md
