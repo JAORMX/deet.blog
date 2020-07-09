@@ -33,7 +33,7 @@ This was the first morning where we got worried and a little sad that she wasnâ€
 
 Our amazing contact from Kulkurit asked how we were doing and advised us to try giving her treats of boiled chicken. So we gave that a try, andâ€¦ Jackpot!
 
-{{< figure src="" caption="Happy Deet" >}}
+{{< figure src="/images/20200706_153325.jpg" caption="Happy Deet" >}}
 
 She changed from night to day!
 
