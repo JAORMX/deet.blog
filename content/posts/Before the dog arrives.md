@@ -2,7 +2,6 @@
 author = "mirkka and ozz"
 categories = []
 date = 2020-07-03T09:21:52Z
-draft = true
 title = "Before Deet arrives"
 type = "post"
 
