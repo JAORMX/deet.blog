@@ -43,3 +43,5 @@ First, we just gave her some treats in front of her crate. This cheered her up a
 {{< figure src="/images/20200706_162105.jpg" caption="Curious Deet" >}}
 
 This helped her explore our apartment a lot more than before, which made us very happy and excited for her.
+
+{{< youtube TGuDZ6D9KLY >}}
