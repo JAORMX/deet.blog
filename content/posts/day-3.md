@@ -8,7 +8,20 @@ title = "Day 3"
 type = "post"
 
 +++
-A mentioned in the previous blog post, in the morning Deet was shy and stayed in the crate. This happened today as well. However, we noticed some signs that she had been active at night:
+## Deet loves chicken!
+
+Today we discovered that our little Deet has a strong love for chicken!
+
+***
+
+Milestones today:
+
+* We discovered that Deet loves chicken
+* Deet was a little more active in the house following chicken pieces
+
+***
+
+As mentioned in the previous blog post, in the morning Deet was shy and stayed in the crate. This happened today as well. However, we noticed some signs that she had been active at night:
 
 * She rearranged her toys
 * She brought one of the new toys inside her crate
