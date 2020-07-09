@@ -1,3 +1,8 @@
+:root {
+  --header-link-color: #0B697B;
+  --btn-link-color: #169DAA;
+}
+
 .bg-cover {
   background-size: auto !important;
 }
@@ -12,4 +17,25 @@
 
 .content ul li::before {
   content: "" !important;
+}
+
+.section h1 a,
+.section h2 a,
+.section h3 a,
+.section h4 a,
+.section p a {
+  color: var(--header-link-color) !important;
+}
+
+.btn-transparent {
+  color: var(--btn-link-color) !important;
+  border-bottom: 1px solid var(--btn-link-color) !important;
+}
+
+.section a:hover {
+  color: var(--btn-link-color) !important;
+}
+
+.navbar a:hover {
+  color: var(--btn-link-color) !important;
 }
