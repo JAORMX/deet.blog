@@ -1,3 +1,7 @@
 .bg-cover {
   background-size: auto !important;
 }
+
+.banner h1 {
+    font-size: 45px;
+}
