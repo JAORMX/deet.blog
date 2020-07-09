@@ -25,7 +25,7 @@ Milestones
 
 ***
 
-Challenge has been that Deet has always come out of the creat only with treats and then ran quickly back to her safe spot. 
+Challenge has been that Deet has always come out of the creat only with treats and then ran quickly back to her safe spot.
 
 Her 5th and 6th days were different. On the 5th she came out after the treats but she was more calm and confident. She stayed longer time, looked around, and sniffed things around her. Also, she felt more confident to walk to other rooms even if there were no treats around. When you have as shy rescue dog as Deet has been so far, this little steps feel like milestones!!
 
@@ -33,8 +33,14 @@ In the evening after so amazing day, we had some popsicle made of chicken broth.
 
 ![](/images/20200708_201108.jpg)![](/images/20200708_200317.jpg)
 
-Deet's 6th day at the new home was an even bigger success! Deet heard the raindrops dropping to the balcony window and I think it was the first time she realized we have a balcony. That triggered her curiosity - all the interesting sounds and smells from outside! She started to walk around and went even to the balcony by herself even if the place was totally new to her. 
+Deet's 6th day at the new home was an even bigger success! Deet heard the raindrops dropping to the balcony window and I think it was the first time she realized we have a balcony. That triggered her curiosity - all the interesting sounds and smells from outside! She started to walk around and went even to the balcony by herself even if the place was totally new to her.
 
-Seemed she started to get used to me as well because she started to approach me differently. More excited, much happier, and much more confident. 
+Seemed she started to get used to me as well because she started to approach me differently. More excited, much happier, and much more confident.
 
 {{< youtube cSUTwNzBJVY >}}
+
+Later, we put the harness on to get Deet to used to it. I must say she is the kindest dog in the world. No matter how scared she is, she is always kind! She didn't look like the harness bothered her so we hope the night goes well with it. 
+
+When you have a rescue dog as shy as Deet has been so far, it's very difficult to estimate when something is too fast and when you should progress faster. So far so good, I hope we could be able to go out to explore the outdoors a bit. 
+
+This day was AMAZING and this little dog is even more!!
