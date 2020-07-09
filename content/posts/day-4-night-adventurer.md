@@ -34,7 +34,7 @@ At some point in the day, Deet gained a little bit of energy when we hide some t
 
 After these little steps, she basically stayed in her crate. This made us think if she was sick or something. We contacted our contact person of Kulkurit in the evening and she said it’s probably just tiredness but let’s wait over the night and see how she is in the morning.
 
-{{< figure src="/images/20200707_174145.jpg"_ caption="Deet resting" >}}
+{{< figure src="/images/20200707_174145.jpg" caption="Deet resting" >}}
 
 However, it was very soon obvious that she was not sick. Five minutes after turning off the lights, Deet was having the greatest adventure of her life. This was a very positive thing to see and her energy and curiosity are amazing features when she gains a bit bravery.  Of course, we hope that with time her schedule will turn normal. Apparently we and the world are just too scary to handle during the day.
 
