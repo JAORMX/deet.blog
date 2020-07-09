@@ -6,7 +6,7 @@ description: This blog documents our life with our beloved dog Deet. She's a res
 author: Mirkka and Ozz
 
 ---
-{{< figure src="/images/founddeet.jpg" title="how she was found" >}}
+{{< figure src="/images/founddeet.jpg" title="How she was found*" >}}
 
 Deet is a rescue dog from Romania. She was found 18th 2019 from the field nearby the M.G. Rescue dog shelter. Nobody knows how she and the other puppy appeared there. After time passed, they also realized that the dogs were not even siblings which made the story even more strange. Anyhow, Mihail from the shelter started to take care of them and that is how their journey to have a new life began.
 
@@ -23,3 +23,5 @@ At this point, we must highlight how amazing association [Kulkurit](https://kulk
 Deet was around 7 months at the M.G. Rescue dog shelter where she was taken good care.
 
 {{< figure src="/images/screenshot-2020-07-09-at-9-43-55.png" caption="*">}}
+
+\* Photos are from the www.kulkurit.fi and M.G. Rescues Facebook page.
