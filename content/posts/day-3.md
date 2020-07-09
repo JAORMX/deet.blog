@@ -39,4 +39,6 @@ She changed from night to day!
 
 First, we just gave her some treats in front of her crate. This cheered her up and she started approaching us more. At some point, we thought it was enough and decided to give her space again. However, Deet had something else in her mind… she was curious and wanted more of that tasty chicken!
 
+{{< figure src="/images/20200706_162105.jpg" caption="Curious Deet" >}}
+
 This helped her explore our apartment a lot more than before, which made us very happy and excited for her.
