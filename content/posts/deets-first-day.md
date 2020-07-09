@@ -36,11 +36,11 @@ The morning was full of excitement! People all over Finland came to pick up thei
 
 Waiting for your dog to arrive is an emotional cocktail: excitement, happiness, nervousness, worry and relief, and plenty of other feelings.
 
-Deet was the last dog in the first group. When she arrived she was tired, scared and yeah, a little bit smelly as well. It's a very heart-melting moment, and it clarifies to you one straight goal: I am going to give her the best home ever!
+Deet was the last dog in the first group. When she arrived she was tired, scared and yeah, a little bit smelly as well.. It's a heart-melting moment, and it clarifies to you one straight goal: I am going to give her the best home ever!
 
 ![](/images/deet-arrive-copy.png)
 
-We got some help to put the harness on and we went through all the important documents with the members of Kulkurit. After everything was ready, we were able to head to home!
+We got some help to put the harness on and we went through all the important documents with the members of Kulkurit. After everything was ready, we were able to head home!
 
 ![/images/20200704](https://app.forestry.io/sites/pqtrwwknkydruw/body-media//images/20200704_120447.jpg)
 
@@ -60,7 +60,7 @@ So we decided to carry her. Notice: About 10 kg heavy dog which is totally froze
 
 After a long car trip, anybody would be tired. When you add an extremely new environment and stress to the mix, it's the most important to have your basic needs filled and in check before anything else.
 
-We were fortunate that Deet was very calm and everything went very well. She did her business, ate, and subsequently took a long nap. So we can call that a success!![](/images/summary-deet.png)
+We were fortunate that Deet was very calm and everything went very well. She did her business, ate, and subsequently took a long nap.So we can call that a success!![](/images/summary-deet.png)
 
 We're not saying that she was in the most chill mood, nor that she was thrilled. We noticed she was scared and confused; which is completely understandable given the situation. So we tried to be extra slow and careful to try to make the process as easy as possible.
 
@@ -70,4 +70,6 @@ Tips: Aroma-dog toy was a huge success! It has a calming aroma that calms down t
 
 #### Smile before sleeping
 
-The big day was about to end. But, before sleeping, Deet got some positive energy and gave us a little example of how charming and adorable dog she is when she has relaxed a little.
+The big day was about to end. But, before sleeping, Deet got some positive energy and gave us a little example of how charming and adorable dog she is when she has relaxed a little. After seeing her super stressed and scared all day, this little smile was the best closure for the day!
+
+![](/images/20200705_000800.jpg)
