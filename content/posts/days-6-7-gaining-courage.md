@@ -31,4 +31,10 @@ Her 5th and 6th days were different. On the 5th she came out after the treats bu
 
 In the evening after so amazing day, we had some popsicle made of chicken broth.
 
-On the 6th the situation was even more 
+![](/images/20200708_201108.jpg)![](/images/20200708_200317.jpg)
+
+Deet's 6th day at the new home was an even bigger success! Deet heard the raindrops dropping to the balcony window and I think it was the first time she realized we have a balcony. That triggered her curiosity - all the interesting sounds and smells from outside! She started to walk around and went even to the balcony by herself even if the place was totally new to her. 
+
+Seemed she started to get used to me as well because she started to approach me differently. More excited, much happier, and much more confident. 
+
+{{< youtube cSUTwNzBJVY >}}
