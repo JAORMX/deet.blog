@@ -5,8 +5,8 @@ date = 2020-07-06T13:17:50Z
 description = "Deet loves chicken"
 title = "Day 3"
 type = "post"
-
 +++
+
 ## Deet loves chicken!
 
 Today we discovered that our little Deet has a strong love for chicken!
@@ -33,9 +33,11 @@ This was the first morning where we got worried and a little sad that she wasn�
 
 Our amazing contact from Kulkurit asked how we were doing and advised us to try giving her treats of boiled chicken. So we gave that a try, and… Jackpot!
 
-{{< figure src="/images/20200706_153325.jpg" caption="Happy Deet" >}}
+{{< youtube TGuDZ6D9KLY >}}
 
 She changed from night to day!
+
+{{< figure src="/images/20200706_153325.jpg" caption="Happy Deet" >}}
 
 First, we just gave her some treats in front of her crate. This cheered her up and she started approaching us more. At some point, we thought it was enough and decided to give her space again. However, Deet had something else in her mind… she was curious and wanted more of that tasty chicken!
 
@@ -43,4 +45,8 @@ First, we just gave her some treats in front of her crate. This cheered her up a
 
 This helped her explore our apartment a lot more than before, which made us very happy and excited for her.
 
-{{< youtube TGuDZ6D9KLY >}}
+{{< figure src="/images//20200706_155146.jpg" >}}
+
+{{< figure src="/images/20200706_153456.jpg" >}}
+
+It was a great day!
