@@ -7,8 +7,6 @@ title = "Day 4: Night adventurer"
 type = "post"
 
 +++
-# The night adventurer
-
 This day was an excellent example of how to be patient. It's easy to say in theory that the dog might be tired, and it needs to sleep a lot. But, when the dog is staying at the crate almost all day and seems to be totally out of energy, one gets worried. In the end, all went fine, and we think this day was more of a lesson for us than for Deet!
 
 ***
@@ -18,7 +16,8 @@ Milestones today
 * Deet got familiar with the new room.
 * Deet was walking around little, took treats.
 * She was sleeping a lot (which is good and nothing to be worried about!!)
-* She was exploring the house during the night. 
+* She was exploring the house during the night.
+* All the basic needs were ok; food, sleep, water etc.
 
 ***
 
@@ -30,7 +29,7 @@ At some point in the day, Deet gained a little bit of energy when we hid some tr
 
 ![/images/whatsapp-image-2020-07-09-at-13-42-30.jpeg](/images/whatsapp-image-2020-07-09-at-13-42-30.jpeg)
 
-![/images/20200707_153522.jpg](/images/20200707_153522.jpg)
+![/images/20200707](/images/20200707_153522.jpg)
 
 After these little steps, she stayed in her crate. This made us think if she was sick or something. We contacted our contact person of Kulkurit in the evening, and she said it’s probably just tiredness, but we should wait over the night and see how she is in the morning.
 
