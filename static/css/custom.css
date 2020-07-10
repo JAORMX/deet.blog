@@ -3,12 +3,12 @@
   --btn-link-color: #169DAA;
 }
 
-.bg-cover {
-  background-size: auto !important;
+.banner .illustration {
+  right: 0px !important;
 }
 
 .banner h1 {
-    font-size: 45px;
+  font-size: 45px;
 }
 
 .content li {

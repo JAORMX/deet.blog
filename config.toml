@@ -29,8 +29,8 @@ google_tag_manager = ""
 home = "Home"
 logo = "images/logo.png"
 [params.banner]
-bgImage = "images/banner/Deeetsyyy.png"
-image = ""
+bgImage = "images/banner/banner-bg.svg"
+image = "images/deet-sola.png"
 title = "Hi! I'm Deet! I'm a rescue dog from Romania living a new life in Finland. Welcome to my journey in this new country with my new family."
 [params.cta]
 description = "Fusce condimentum nunc ac nisi vulputate fringilla. Donec lacinia congue felis in faucibus."
