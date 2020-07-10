@@ -29,7 +29,7 @@ Our morning started slow like usually. Deet likes to walk during the nights and 
 
 {{< figure src="/images/20200709_071908.jpg" caption="Deet in the morning" >}}
 
-Challenge has been that Deet has always come out of the creat only with treats and then ran quickly back to her safe spot.
+Challenge has been that Deet has always come out her crate only with treats and then ran quickly back to her safe spot.
 
 Her 5th and 6th days were different. On the 5th she came out after the treats but she was more calm and confident. She stayed longer time, looked around, and sniffed things around her. Also, she felt more confident to walk to other rooms even if there were no treats around. When you have as shy rescue dog as Deet has been so far, these little steps feel like milestones!!
 
