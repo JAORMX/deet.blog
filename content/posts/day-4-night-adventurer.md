@@ -13,14 +13,14 @@ This day was a good example of how to be patient. It's easy to say in theory tha
 
 ***
 
-Mailstones today
+Milestones today
 
 * Deet got familiar with the new room
 * Deet was walking around little, took treat
 * She was sleeping a lot (which is good and nothing to be worried about!!)
 * She was exploring the house during the night
 
-  ***
+***
 
 So in the evening, we were quite worried about Deet which seems very crazy now when you view the day afterward. She stayed in her crate almost all of the day and in the evening she looked like she had no energy AT ALL. She has slept before a lot too, but now it felt like the floor has some glue on it.
 
