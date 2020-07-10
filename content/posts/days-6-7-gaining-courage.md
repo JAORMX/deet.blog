@@ -7,8 +7,6 @@ title = "Days 5 & 6: Gaining courage "
 type = "post"
 
 +++
-# Gaining courage
-
 During these two days, Deet has shown remarkable progress.
 
 ![](/images/20200709_194320.jpg)
