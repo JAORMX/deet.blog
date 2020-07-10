@@ -22,6 +22,6 @@ At this point, we must highlight how amazing association [Kulkurit](https://kulk
 
 Deet was around 7 months at the M.G. Rescue dog shelter where she was taken good care.
 
-{{< figure src="/images/screenshot-2020-07-09-at-9-43-55.png" caption="*">}}
+{{< figure src="/images/screenshot-2020-07-09-at-9-43-55.png" caption="Deet at the shelter*">}}
 
 \* Photos are from the www.kulkurit.fi and M.G. Rescues Facebook page.
