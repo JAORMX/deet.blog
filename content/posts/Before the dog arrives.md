@@ -13,7 +13,7 @@ type = "post"
 
 The adoption process was everything else than a normal case. The Covid-19 was slowing down dog delivery because the countries shut down and closed their borders, and nobody knew when things would get better, and the dogs would be able to travel to Finland.
 
-During these months, we consumed [Zak George](https://www.dogtrainingrevolution.com "Zak George")’s books and youtube videos about dog training and watched webinars the Koiruuksien Klubi offered. We highly recommend all those resources for people who are planning to have a dog!
+During these months, we consumed [Zak George](https://www.dogtrainingrevolution.com "Zak George")’s books and youtube videos about dog training and watched webinars the [Koiruuksien Klubi ](https://www.koiruuksienklubi.fi/)offered. We highly recommend all those resources for people who are planning to have a dog!
 
 For a long time, we spent time browsing Facebook and Kulkurit's website, looking for videos of the dogs, and trying to spot our Deet even for a second or two. That was probably one of the hardest things while waiting since we didn't know how our dog was doing along this time, even if we knew that they were well taken care of. We did understand, however, that they cannot give updates to everybody on their dogs all the time, they sure were many on the waiting list!
 
