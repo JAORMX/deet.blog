@@ -1,7 +1,7 @@
 baseURL = "https://blog.deet.dog/"
 disqusShortname = ""
 languageCode = "en-us"
-paginate = "5"
+paginate = "10"
 summaryLength = "10"
 theme = "northernlab-hugo"
 title = "Deet's blog"
