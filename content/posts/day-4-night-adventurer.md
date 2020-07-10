@@ -31,7 +31,7 @@ At some point in the day, Deet gained a little bit of energy when we hid some tr
 
 ![/images/20200707](/images/20200707_153522.jpg)
 
-After these little steps, she stayed in her crate. This made us think if she was sick or something. We contacted our contact person of Kulkurit in the evening, and she said it’s probably just tiredness, but we should wait over the night and see how she is in the morning.
+After these little steps, she stayed in her crate. This made us think if she was sick or something. We contacted our contact person of Kulkurit in the evening, and she said it’s probably just tiredness, but we agreed it's better to wait over the night and see how she is in the morning.
 
 {{< figure src="/images/20200707_174145.jpg" caption="Deet resting" >}}
 
