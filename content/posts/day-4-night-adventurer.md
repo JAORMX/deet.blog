@@ -22,7 +22,7 @@ Mailstones today
 
   ***
 
-So in the evening, we got quite worried about Deet which seems very crazy now when you view the day afterward. She stayed in her crate almost all of the day and in the evening she looked like she had no energy AT ALL. She has slept before a lot too, but now it felt like the floor has some glue on it.
+So in the evening, we were quite worried about Deet which seems very crazy now when you view the day afterward. She stayed in her crate almost all of the day and in the evening she looked like she had no energy AT ALL. She has slept before a lot too, but now it felt like the floor has some glue on it.
 
 ![](/images/whatsapp-image-2020-07-09-at-13-37-40.jpeg)
 
