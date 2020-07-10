@@ -24,13 +24,13 @@ Milestones today
 
 So in the evening, we were quite worried about Deet, which seems very crazy now when you view the day afterward. She stayed in her crate almost all of the day. In the evening, she looked like she had no energy AT ALL. She has slept before a lot too, but now it felt like the floor has some glue on it.
 
-![/images/whatsapp-image-2020-07-09-at-13-37-40.jpeg](https://app.forestry.io/sites/pqtrwwknkydruw/body-media//images/whatsapp-image-2020-07-09-at-13-37-40.jpeg)
+![/images/whatsapp-image-2020-07-09-at-13-37-40.jpeg](/images/whatsapp-image-2020-07-09-at-13-37-40.jpeg)
 
 At some point in the day, Deet gained a little bit of energy when we hid some treats around the house and introduced our living room for her for the first time like that.
 
-![/images/whatsapp-image-2020-07-09-at-13-42-30.jpeg](https://app.forestry.io/sites/pqtrwwknkydruw/body-media//images/whatsapp-image-2020-07-09-at-13-42-30.jpeg)
+![/images/whatsapp-image-2020-07-09-at-13-42-30.jpeg](/images/whatsapp-image-2020-07-09-at-13-42-30.jpeg)
 
-![/images/20200707_153522.jpg](https://app.forestry.io/sites/pqtrwwknkydruw/body-media//images/20200707_153522.jpg)
+![/images/20200707_153522.jpg](/images/20200707_153522.jpg)
 
 After these little steps, she stayed in her crate. This made us think if she was sick or something. We contacted our contact person of Kulkurit in the evening, and she said it’s probably just tiredness, but we should wait over the night and see how she is in the morning.
 
@@ -48,4 +48,4 @@ Night adventurer <3
 
 After great adventures, it's good to lay down at the safe spot again, surrounded by all the toys.
 
-![/images/whatsapp-image-2020-07-10-at-09-59-23.jpeg](https://app.forestry.io/sites/pqtrwwknkydruw/body-media//images/whatsapp-image-2020-07-10-at-09-59-23.jpeg)
+![/images/whatsapp-image-2020-07-10-at-09-59-23.jpeg](/images/whatsapp-image-2020-07-10-at-09-59-23.jpeg)

@@ -9,7 +9,7 @@ type = "post"
 +++
 During these two days, Deet has shown remarkable progress.
 
-![/images/20200709_194320.jpg](https://app.forestry.io/sites/pqtrwwknkydruw/body-media//images/20200709_194320.jpg)
+![/images/20200709_194320.jpg](/images/20200709_194320.jpg)
 
 Milestones
 
@@ -31,19 +31,19 @@ Challenge has been that Deet has always come out her crate only with treats and 
 
 Her 5th and 6th days were different. On the 5th, she came out after the treats, but she was more calm and confident. She stayed longer time, looked around, and sniffed things around her. Also, she felt more confident to walk to other rooms, even if there were no treats around. When you have as shy rescue dog as Deet has been so far, these little steps feel like milestones!!
 
-![/images/whatsapp-image-2020-07-10-at-09-58-03.jpeg](https://app.forestry.io/sites/pqtrwwknkydruw/body-media//images/whatsapp-image-2020-07-10-at-09-58-03.jpeg)
+![/images/whatsapp-image-2020-07-10-at-09-58-03.jpeg](/images/whatsapp-image-2020-07-10-at-09-58-03.jpeg)
 
 Even if the progress of one day might seem very little, in reality, it might lead something huge during the next day!
 
 In the evening, after such a fantastic day, we had some popsicle made of chicken broth.
 
-![/images/20200708_201108.jpg](https://app.forestry.io/sites/pqtrwwknkydruw/body-media//images/20200708_201108.jpg)
+![/images/20200708_201108.jpg](/images/20200708_201108.jpg)
 
-![/images/20200708_200317.jpg](https://app.forestry.io/sites/pqtrwwknkydruw/body-media//images/20200708_200317.jpg)
+![/images/20200708_200317.jpg](/images/20200708_200317.jpg)
 
 Deet's 6th day at the new home was an even more significant success! Deet heard the raindrops dropping to the balcony window, and we think it was the first time she realized we have a balcony. That triggered her curiosity - all the exciting sounds and smells from outside! She started to walk around and went even to the balcony by herself, also if the place was new to her.
 
-![/images/whatsapp-image-2020-07-09-at-18-02-22.jpeg](https://app.forestry.io/sites/pqtrwwknkydruw/body-media//images/whatsapp-image-2020-07-09-at-18-02-22.jpeg)
+![/images/whatsapp-image-2020-07-09-at-18-02-22.jpeg](/images/whatsapp-image-2020-07-09-at-18-02-22.jpeg)
 
 It seemed she started to get used to me (Mirkka) as well because she began to approach me differently. More excited, much happier, and much more confident.
 
