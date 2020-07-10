@@ -21,7 +21,7 @@ The time before the dogs arrived was also great for shopping and getting crazy i
 
 {{< figure src="/images/20200701_184025.jpg" caption="Deet's stuff!" >}}
 
-One other thing we did while waiting is spending some time looking at the different dog food options. And damn! There are so many options! It was hard to decide on which food to buy, given that there are so many variations in price and quality. However, we believe that we ended up finding a good compromise with [Canagan](https://www.canagan.co.uk "Canagan"). Yet, we're still interested in a local brand called [Alvar](https://alvarpet.com/en/ "Alvar"). We'll keep you updated on this!
+One other thing we did while waiting is spending some time looking at the different dog food options. And damn! There are so many of them! It was hard to decide on which food to buy, given that there are so many variations in price and quality. However, we believe that we ended up finding a good compromise with [Canagan](https://www.canagan.co.uk "Canagan"). Yet, we're still interested in a local brand called [Alvar](https://alvarpet.com/en/ "Alvar"). We'll keep you updated on this!
 
 ### The adoption process & pandemic: connecting people!
 
