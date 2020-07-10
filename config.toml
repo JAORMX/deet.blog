@@ -5,10 +5,6 @@ paginate = "10"
 summaryLength = "10"
 theme = "northernlab-hugo"
 title = "Deet's blog"
-[[menu.footer]]
-URL = "contact"
-name = "Contact"
-weight = 1
 [[menu.main]]
 URL = "about"
 name = "Deet"
