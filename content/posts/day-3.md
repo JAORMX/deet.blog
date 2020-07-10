@@ -7,25 +7,25 @@ title = "Day 3 Deet loves chicken!"
 type = "post"
 
 +++
-Today we discovered that our little Deet has a strong love for chicken!
+Today we discovered that our little Deet has a strong love for chicken! 
 
 ***
 
 Milestones today:
 
-* We discovered that Deet loves chicken
-* Deet was way more active in the house following chicken pieces
-* Smiles, smiles and smiles
+* We discovered that Deet loves chicken.
+* Deet was way more active in the house following chicken pieces.
+* Smiles, smiles, and smiles.
 
 ***
 
-As mentioned in the previous blog post, in the morning Deet was shy and stayed in the crate. This happened today as well. However, we noticed some signs that she had been active at night:
+As mentioned in the previous blog post, in the morning, Deet was shy and stayed in the crate. The same happened today, as well. However, we noticed some signs that she had been active at night:
 
-* She rearranged her toys
-* She brought one of the new toys inside her crate
-* She was laying beside a missing shoe, cuddling with it
+* She rearranged her toys.
+* She brought one of the new toys inside her crate.
+* She was laying beside a missing shoe, cuddling with it.
 
-This was the first morning where we got worried and a little sad that she wasn’t coming out of her crate and seemed very scared. So we decided to give her space.
+Today was the first morning where we got worried and a little sad that she wasn’t coming out of her crate and seemed very scared. So we decided to give her space.
 
 {{< figure src="/images/whatsapp-image-2020-07-09-at-13-11-14.jpeg" caption="Sad Deet" >}}
 
