@@ -43,7 +43,7 @@ First, we just gave her some treats in front of her crate. This cheered her up a
 
 This helped her explore our apartment a lot more than before, which made us very happy and excited for her.
 
-{{< figure src="/images//20200706_155146.jpg" >}}
+{{< figure src="/images/20200706_155146.jpg" >}}
 
 {{< figure src="/images/20200706_153456.jpg" >}}
 
