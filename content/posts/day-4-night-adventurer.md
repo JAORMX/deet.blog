@@ -45,3 +45,7 @@ Another positive insight: In the day time we have hidden treats around the apart
 Apparently, it has made her more confident even if she doesn’t show it during the day. During the nights she is able to go to the same spots where she has found a treat during the day. So little success with that!
 
 Night adventurer <3
+
+After great adventures it's good to lay down at the safe spot again surrounded by all the toys.
+
+![](/images/whatsapp-image-2020-07-10-at-09-59-23.jpeg)
