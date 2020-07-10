@@ -27,7 +27,7 @@ Milestones
 
 Our morning started slow like usually. Deet likes to walk during the nights and she is quite sleepy in the mornings. It has been amazing achievement to see how she feels more comfortable with petting nowadays.
 
-{{< figure src="" caption="<caption>" >}}
+{{< figure src="/images/20200709_071908.jpg" caption="Deet in the morning" >}}
 
 Challenge has been that Deet has always come out of the creat only with treats and then ran quickly back to her safe spot.
 
