@@ -45,6 +45,6 @@ This helped her explore our apartment a lot more than before, which made us very
 
 {{< figure src="/images/20200706_155146.jpg" >}}
 
-{{< figure src="/images/20200706_153456.jpg" >}}
+{{< figure src="/images/20200706_153457.jpg" >}}
 
 It was a great day!
