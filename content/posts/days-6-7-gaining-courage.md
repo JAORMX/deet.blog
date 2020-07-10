@@ -53,8 +53,6 @@ Later, we put the harness on to get Deet to used to it. I must say she is the ki
 
 When you have a rescue dog as shy as Deet has been so far, it's very difficult to estimate when something is too fast and when you should progress faster. So far so good and I hope we could be able to go out to explore the outdoors a bit.
 
-{{< youtube Kumlx2Zx-u8 >}}
-
 {{< youtube BNPx2XVAqUQ >}}
 
 This day was AMAZING and this little dog is even more!! Let's see what tomorrow brings along :)
