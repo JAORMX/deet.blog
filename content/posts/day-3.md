@@ -7,14 +7,16 @@ title = "Day 3 Deet loves chicken!"
 type = "post"
 
 +++
-Today we discovered that our little Deet has a strong love for chicken! 
+Today we discovered that our little Deet has a strong love for chicken!
 
 ***
 
 Milestones today:
 
-* We discovered that Deet loves chicken.
+* We discovered that Deet reacts very well to chicken.
 * Deet was way more active in the house following chicken pieces.
+* She looked much braver.
+* All the basic needs were ok; food, sleep, water etc.
 * Smiles, smiles, and smiles.
 
 ***
