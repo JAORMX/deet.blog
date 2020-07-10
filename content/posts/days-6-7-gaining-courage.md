@@ -31,7 +31,11 @@ Our morning started slow like usually. Deet likes to walk during the nights and 
 
 Challenge has been that Deet has always come out her crate only with treats and then ran quickly back to her safe spot.
 
-Her 5th and 6th days were different. On the 5th she came out after the treats but she was more calm and confident. She stayed longer time, looked around, and sniffed things around her. Also, she felt more confident to walk to other rooms even if there were no treats around. When you have as shy rescue dog as Deet has been so far, these little steps feel like milestones!!
+Her 5th and 6th days were different. On the 5th she came out after the treats but she was more calm and confident. She stayed longer time, looked around, and sniffed things around her. Also, she felt more confident to walk to other rooms even if there were no treats around. When you have as shy rescue dog as Deet has been so far, these little steps feel like milestones!! 
+
+![](/images/whatsapp-image-2020-07-10-at-09-58-03.jpeg)
+
+Even if the progress of one day might seem very little, in reality it might lead something huge during the next day! 
 
 In the evening after so amazing day, we had some popsicle made of chicken broth.
 
@@ -47,8 +51,10 @@ Seemed she started to get used to me as well because she started to approach me 
 
 Later, we put the harness on to get Deet to used to it. I must say she is the kindest dog in the world. No matter how scared she is, she is always kind! She didn't look like the harness bothered her so we hope the night goes well with it.
 
-When you have a rescue dog as shy as Deet has been so far, it's very difficult to estimate when something is too fast and when you should progress faster. So far so good, I hope we could be able to go out to explore the outdoors a bit.
+When you have a rescue dog as shy as Deet has been so far, it's very difficult to estimate when something is too fast and when you should progress faster. So far so good and I hope we could be able to go out to explore the outdoors a bit. Like you can see in the last video, we introduced the new harness to her this evening and put it on so she could get used to it. 
 
 {{< youtube Kumlx2Zx-u8 >}}
 
-This day was AMAZING and this little dog is even more!!
+{{< youtube BNPx2XVAqUQ >}}
+
+This day was AMAZING and this little dog is even more!! Let's see what tomorrow brings along :) 
