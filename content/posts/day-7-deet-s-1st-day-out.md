@@ -47,16 +47,18 @@ Even if the new environment was intimidating, it was good idea to bring her outs
 
 {{< figure src="/images/20200710_194323.jpg" >}}
 
-Interesting thing was that she found a safe spot also from the park. She sat down near to the pushes and returned back to the same place always, is something got her too nervous. 
+Interesting thing was that she found a safe spot also from the park. She sat down near to the pushes and returned back to the same place always, is something got her too nervous.
 
 {{< figure src="/images/img_20200710_202754.jpg" caption="Deet's safe spot at the park">}}
 
-Other than that all went very well. First she mostly sat and observed what is happening around. But later, she also started to get interested in walking. 
+Other than that all went very well. First she mostly sat and observed what is happening around. But later, she also started to get interested in walking.
 
-We gave her a bone to relax and enjoy her time at the park. 
+We gave her a bone to relax and enjoy her time at the park.
 
 {{< youtube="dQBVxsFUUVw" >}}
 
 ![](/images/20200710_195359.jpg)
 
-![](/images/20200710_195724.jpg)
+![](/images/20200710_195805.jpg)
+
+![](/images/20200710_201304.jpg)
