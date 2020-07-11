@@ -32,6 +32,18 @@ Well.. Deet wasn't so happy about this
 
 {{< figure src="/images/whatsapp-image-2020-07-11-at-09-57-33.jpeg" caption="_Deet: I am not going to some stupid park_" >}}
 
-### Give time, then time, and more time
+### Give time, then time and then a little gentle push
 
 We let Deet be for a while so she can get used to the collar and leashes and that she could digest what just happened. At this point, we also considered that maybe it's too early to go out but on the other hand we still had that feeling that she can do it and she could even get excited outside.
+
+So we gave a try!
+
+{{< figure src="/images/whatsapp-image-2020-07-11-at-10-05-12.jpeg" caption="_Here we go!_" >}}
+
+### The park worked!
+
+Even if the new environment was intimidating, it was good idea to bring her outside. She was very curious but calm.
+
+{{< figure src="/images/20200710_194323.jpg" >}} 
+
+Interesting was how she found a safespot also from the park. She sat down near to the pushes and returned back to the same place always, is something got her too nervous. 
