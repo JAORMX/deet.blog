@@ -63,4 +63,14 @@ We gave her a bone to relax and enjoy her time at the park.
 
 ![](/images/20200710_201304.jpg)
 
-We also tried to have our first portrait. Apparently Deet wasn't excited to be in the picture first, but in the end we got quite a nice shot!
+We also tried to have our first portrait. Apparently Deet wasn't too excited to be in the picture first, but in the end we got quite nice shot!
+
+![](/images/portrait-copy.png)
+
+### Such a great day!
+
+One big milestone today was that Deet learned not to bite the leash. It required little bit chicken and good timing, but she got the idea very fast. 
+
+Also, she has started to approach as more which is the best award ever. 
+
+This day was a very nice start but it's going to be a loooong way before we are able to have relaxed walks in the leash. Or then not - Deet seems to learn some things incredibly fast. 
