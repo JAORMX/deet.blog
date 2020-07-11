@@ -79,8 +79,8 @@ One big milestone of the day was that Deet learned not to bite the leash! That r
 
 Also, she has started to approach us more which has been the best reward so far.
 
-{{< youtube goFrhPOMT >}}
+{{< youtube UgoFrhPOMT0 >}}
 
-Food & Sleep
+### Food & Sleep
 
-Nice surprise was that when we arrived home 
+Nice surprise was that when we arrived home, Deet didn't run to her crate, she went to the living room to rest (which she has never done before). There will be still long way with potty training because the first thing she did after the dinner was her business inside :D So we still have some work to do with that.. 
