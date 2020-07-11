@@ -3,7 +3,6 @@ author = "mirkka and ozz"
 categories = []
 date = 2020-07-10T05:19:00Z
 description = "Deet's first day out"
-draft = true
 title = "Day 7 - Deet's 1st day out"
 type = "post"
 
