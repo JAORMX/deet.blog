@@ -63,6 +63,8 @@ We gave her a bone to relax and enjoy her time at the park.
 
 ![/images/20200710](https://app.forestry.io/sites/pqtrwwknkydruw/body-media//images/20200710_201304.jpg)
 
+![](/images/20200710_200113.jpg)
+
 We also tried to have our first portrait. Apparently, Deet wasn't excited to be in the picture first, but in the end, we got quite a nice shot!
 
 ![/images/portrait-copy.png](https://app.forestry.io/sites/pqtrwwknkydruw/body-media//images/portrait-copy.png)
