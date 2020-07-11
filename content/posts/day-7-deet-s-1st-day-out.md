@@ -31,3 +31,7 @@ We boiled chicken to cheer Deet up. Even if Deet had her harness on already we n
 Well.. Deet wasn't so happy about this
 
 {{< figure src="/images/whatsapp-image-2020-07-11-at-09-57-33.jpeg" caption="_Deet: I am not going to some stupid park_" >}}
+
+### Give time, then time, and more time
+
+We let Deet be for a while so she can get used to the collar and leashes and that she could digest what just happened. At this point, we also considered that maybe it's too early to go out but on the other hand we still had that feeling that she can do it and she could even get excited outside.
