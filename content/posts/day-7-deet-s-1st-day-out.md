@@ -43,15 +43,15 @@ So we gave it a try!
 
 ### The park worked!
 
-Even if the new environment was intimidating, it was a good idea to bring her outside. She was very curious but calm.
+Even if the new environment was intimidating, it was good idea to bring her outside. She was very curious but calm.
 
 {{< figure src="/images/20200710_194323.jpg" >}}
 
-An interesting thing was that she found a safe spot also in the park. She sat down near the bushes and returned back to the same place if something got her too nervous, as always.
+Interesting thing was that she found a safe spot also from the park. She sat down near to the pushes and returned back to the same place always, is something got her too nervous.
 
 {{< figure src="/images/img_20200710_202754.jpg" caption="Deet's safe spot at the park">}}
 
-Other than that all went very well. First, she mostly sat and observed what was happening around. But later, she also started to get interested in walking.
+Other than that all went very well. First she mostly sat and observed what is happening around. But later, she also started to get interested in walking.
 
 We gave her a bone to relax and enjoy her time at the park.
 
@@ -69,8 +69,18 @@ We also tried to have our first portrait. Apparently Deet wasn't excited to be i
 
 Such a great day!
 
+![](/images/20200710_222759-1.jpg)
+
 One big milestone of the day was that Deet learned not to bite the leash! That required little bit of chicken and good timing :)
+
+![](/images/20200710_225705.jpg)
+
+![](/images/20200710_225242.jpg)
 
 Also, she has started to approach us more which has been the best reward so far.
 
 {{< youtube goFrhPOMT >}}
+
+Food & Sleep
+
+Nice surprise was that when we arrived home 
