@@ -23,11 +23,11 @@ Milestones:
 
 ***
 
-The day started slow - but it's ok! We understand that is Deet's own time and that is our own time too. Around 5 pm we started to boil some chicken because we knew it's going to be needed - today we are going out!
+The day started slow - but it's ok! We understand that it's Deet's own time and that it's our own time too. Around 5 pm we started to boil some chicken because we knew it's going to be needed - today we are going out!
 
-It takes time to get to know your dog. But I think so far we have done quite a good job. It feels difficult to estimate if the steps we are taking are too big or not. Today was a good example.
+It takes time to get to know your dog. But we think that so far we have done quite a good job. It feels difficult to estimate if the steps we are taking are too big or not. Today was a good example.
 
-We boiled chicken to cheer Deet up. Even if Deet had her harness on already we needed to put the leashes and a collar on as well. With rescues it's important to have double leash in the beginning because if they get scared of some sound, they might run away and fast!
+We boiled chicken to cheer Deet up. Even if she had her harness on already we needed to put the leashes and a collar on as well. With rescues it's important to have a double leash in the beginning because if they get scared of some sound, they might run away and fast!
 
 Well.. Deet wasn't so happy about this
 
@@ -35,9 +35,9 @@ Well.. Deet wasn't so happy about this
 
 ### Give time, then time and then a little gentle push
 
-We let Deet be for a while so she can get used to the collar and leashes and that she could digest what just happened. At this point, we also considered that maybe it's too early to go out but on the other hand we still had that feeling that she can do it and she could even get excited outside.
+We let Deet be for a while so she could get used to the collar and leashes and that she could digest what just happened. At this point, we also considered that maybe it's too early to go out but on the other hand we still had that feeling that she can do it and she could even get excited outside.
 
-So we gave a try!
+So we gave it a try!
 
 {{< figure src="/images/whatsapp-image-2020-07-11-at-10-05-12.jpeg" caption="_Here we go!_" >}}
 
