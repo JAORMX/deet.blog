@@ -17,6 +17,7 @@ Milestones:
 * Deet slept until 5pm and we knew there is nothing to worry about :D
 * We went FOR A WALK!
 * Deet has been more confident with us and our home.
+* Deet learned not to bite the leash
 * She eats, drinks water, does her business like always.
 * She still loves chicken <3
 
@@ -44,6 +45,18 @@ So we gave a try!
 
 Even if the new environment was intimidating, it was good idea to bring her outside. She was very curious but calm.
 
-{{< figure src="/images/20200710_194323.jpg" >}} 
+{{< figure src="/images/20200710_194323.jpg" >}}
 
-Interesting was how she found a safespot also from the park. She sat down near to the pushes and returned back to the same place always, is something got her too nervous. 
+Interesting thing was that she found a safe spot also from the park. She sat down near to the pushes and returned back to the same place always, is something got her too nervous. 
+
+{{< figure src="/images/img_20200710_202754.jpg" caption="Deet's safe spot at the park">}}
+
+Other than that all went very well. First she mostly sat and observed what is happening around. But later, she also started to get interested in walking. 
+
+We gave her a bone to relax and enjoy her time at the park. 
+
+{{< youtube="dQBVxsFUUVw" >}}
+
+![](/images/20200710_195359.jpg)
+
+![](/images/20200710_195724.jpg)
