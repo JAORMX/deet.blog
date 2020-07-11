@@ -62,3 +62,5 @@ We gave her a bone to relax and enjoy her time at the park.
 ![](/images/20200710_195805.jpg)
 
 ![](/images/20200710_201304.jpg)
+
+We also tried to have our first portrait. Apparently Deet wasn't excited to be in the picture first, but in the end we got quite a nice shot!
