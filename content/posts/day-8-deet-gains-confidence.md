@@ -38,6 +38,8 @@ The beginning at the park is always tricky. Since she's still quite afraid to ge
 
 {{< figure src="/images/img_20200711_184119.jpg" >}}
 
+{{< figure src="/images/img_20200711_185243.jpg" >}}
+
 We learned today that if she gets stuck at a _safe place_, it's ok to push her a little bit and carry her elsewhere. She ends up forgetting quickly about her previous safe place and gets excited about new smells and things at the new location.
 
 {{<figure src="" caption="Walking with Deet in the park" >}}
