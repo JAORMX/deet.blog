@@ -53,7 +53,7 @@ The challenge when walking with Deet outdoors is that she might get scared at ve
 
 Also, this was the first day Deet was interested in toys. As a rescue dog who has lived in a shelter all of her life, she has no idea what are toys or how to play with them. Today we were able to start some basic tug of war play. Sometimes it just feels like Deet is too kind for that kind games because first, she grabbed the toy with only one tooth :D
 
-{{< figure src= "/images/20200711_194028.jpg" >}}
+{{< figure src="/images/20200711_194028.jpg" >}}
 
 At some point, Deet started to look more relaxed and even playful. It is then that we realised that her leash was too short for this. We had previously bought a long (15m) leash for training and playing sessions outdoors. It's very handy since you can tie it around you and your dog will get more freedom, while still being safe.
 
