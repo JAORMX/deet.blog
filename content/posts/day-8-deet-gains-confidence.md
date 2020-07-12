@@ -24,6 +24,8 @@ Deet still has a teenager schedule, sleeping in the days and staying awake at ni
 
 {{<figure src="" caption="Paws aiming at the ceiling, shoe laces in her mouth, and her nose outside of the crate" >}}
 
-So it was a little hard to convince her to go out of her safe place in the day.
+Given her activities at night, it was a little hard to convince her to go out of her safe place in the day. Around 5pm, our teenager finally started waking up! So we thought it would be a good idea to bring her out to get some fresh air! Still, it's not going as smooth as we would hope. But we're getting there.
 
-Around 5pm, our teenager finally started waking up!
+{{<figure src="" caption="Trying to convince Deet to go outside" >}}
+
+## Finally at the park
