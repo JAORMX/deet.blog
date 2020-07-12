@@ -4,7 +4,7 @@ categories = []
 date = 2020-07-12T07:10:00Z
 description = ""
 draft = true
-title = "Day 8 -  Deet gains confidence"
+title = "Day 8 -  Deet warms up to us"
 type = "post"
 
 +++
