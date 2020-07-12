@@ -42,23 +42,25 @@ The beginning at the park is always tricky. Since she's still quite afraid to ge
 
 We learned today that if she gets stuck at a _safe place_, it's ok to push her a little bit and carry her elsewhere. She ends up forgetting quickly about her previous safe place and gets excited about new smells and things at the new location.
 
-{{<figure src="/images/20200711_191840.jpg" caption="Walking with Deet in the park" >}}
+{{< figure src="/images/20200711_191840.jpg" caption="Walking with Deet in the park" >}}
 
-{{<figure src="/images/20200711_192227.jpg" caption="Her favourite place to walk is besides the bushes" >}}
+{{< figure src="/images/20200711_192227.jpg" caption="Her favourite place to walk is besides the bushes" >}}
 
-{{<figure src="/images/20200711_200151.jpg" caption="New safe place at the bushes" >}}
+{{< figure src="/images/20200711_200151.jpg" caption="New safe place at the bushes" >}}
 
 The challenge when walking with Deet outdoors is that she might get scared at very random things. We have always tried to create nice memories for her while being at parks. And one things we have tried is to give her a bone to relax.
 
-{{<figure src="/images/deet-eating-bone.png" caption="Deet enjoying her bone" >}}
+{{< figure src="/images/deet-eating-bone.png" caption="Deet enjoying her bone" >}}
 
-Also, this was the first day Deet was interested in toys. As a rescue dog who has lived in a shelter all of her life, she has no idea what are toys or how to play with them. Today we were able to start some basic tug of war play. Sometimes it just feels like Deet is too kind for that kind games because first, she grabbed the toy with only one tooth :D 
+Also, this was the first day Deet was interested in toys. As a rescue dog who has lived in a shelter all of her life, she has no idea what are toys or how to play with them. Today we were able to start some basic tug of war play. Sometimes it just feels like Deet is too kind for that kind games because first, she grabbed the toy with only one tooth :D
+
+{{< figure src= "/images/20200711_194028.jpg" >}}
 
 At some point, Deet started to look more relaxed and even playful. It is then that we realised that her leash was too short for this. We had previously bought a long (15m) leash for training and playing sessions outdoors. It's very handy since you can tie it around you and your dog will get more freedom, while still being safe.
 
 At first, Deet wanted to just go further and enjoy some alone time.
 
-{{<figure src="/images/img_20200711_205556.jpg" caption="Deet smelling the air" >}}
+{{< figure src="/images/img_20200711_205556.jpg" caption="Deet smelling the air" >}}
 
 We were just happy that Deet had a bit more freedom and bravery to walk around and be excited about the new smells and views. However, to our positive surprise, she started walking towards us after a while. Having her deliberately choose our company felt amazing!
 
@@ -72,6 +74,10 @@ Getting contact and communication with your dog is very important, so we started
 
 After a long day outside, we started to walk back home. At this point, Deet was already more excited about walking, so it was a lot easier to leave than to arrive. There were some hiccups here and there. For instance, loud sounds from children playing seem to scare her a lot. But she got over them! It was also very nice to see that she was calm when other people and dogs passed by.
 
-{{<figure src="X3YYElnrRRg" caption="Deet walking" >}}
+{{< figure src="X3YYElnrRRg" caption="Deet walking" >}}
 
-Finally, after a long session outside, she chilled out besides us in the living room. This was the first time she ever did this! At some point she even took a nap besides us. This was the cherry on the top of the cake for today.
+Finally, after a long session outside, she chilled out besides us in the living room. This was the first time she ever did this!
+
+{{< /images/20200711_225207.jpg" >}}
+
+At some point she even took a nap besides us. This was the cherry on the top of the cake for today.
