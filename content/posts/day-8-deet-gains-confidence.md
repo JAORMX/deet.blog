@@ -63,6 +63,8 @@ At first, Deet wanted to just go further and enjoy some alone time.
 
 We were just happy that Deet had a bit more freedom and bravery to walk around and be excited about the new smells and views. However, to our positive surprise, she started walking towards us after a while. Having her deliberately choose our company felt amazing!
 
+{{< figure src="/images/20200711_214136-1.jpg" caption="Deet arrived to chill out with us (and to have some chicken...)" >}}
+
 She was in a very good mood! We try to get a positive association for her to get near us, so, whenever she does, we give her a small treat for it. It seems to work, cause she was really enjoying being around us. She seemed very receptive and happy, so we decided to try out some small training session where we started teaching her very basic things. The idea was just to try it out because she seemed excited. But at this point our main goal is to make her feel safe and confident with us. (Never try to train the dog if the he/she is too overwhelmed or scared!)
 
 Getting contact and communication with your dog is very important, so we started to teach her to look at us ("katso" in Finnish), to come to us ("tule" in Finnish) and even the first steps towards sitting ("istu" in Finnish). The most rewarding thing for us was that we noticed that Deet was really enjoying it.
