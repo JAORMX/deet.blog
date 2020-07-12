@@ -81,3 +81,5 @@ Finally, after a long session outside, she chilled out besides us in the living 
 {{< /images/20200711_225207.jpg" >}}
 
 At some point she even took a nap besides us. This was the cherry on the top of the cake for today.
+
+{{< /images/20200711_230036.jpg >}}
