@@ -15,7 +15,7 @@ Milestones:
 * It was the first time Deet got interested in toys.
 * It was also the first time we had a small training session.
 * Deet started walking on her leash (not only laying by a bush).
-* Deet hung out with us in the living room (and even took a nap there). 
+* Deet hung out with us in the living room (and even took a nap there).
 
 ***
 
@@ -78,6 +78,8 @@ Getting contact and communication with your dog is very important, so we started
 After a long day outside, we started to walk back home. At this point, Deet was already more excited about walking, so it was a lot easier to leave than to arrive. There were some hiccups here and there. For instance, loud sounds from children playing seem to scare her a lot. But she got over them! It was also very nice to see that she was calm when other people and dogs passed by.
 
 {{< youtube X3YYElnrRRg >}}
+
+{{< youtube gFRzhO1m_SM >}}
 
 Finally, after a long session outside, she chilled out beside us in the living room. This was the first time she ever did this!
 
