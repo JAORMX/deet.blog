@@ -46,6 +46,8 @@ We learned today that if she gets stuck at a _safe place_, it's ok to push her a
 
 {{<figure src="/images/20200711_192227.jpg" caption="Her favourite place to walk is besides the bushes" >}}
 
+{{<figure src="" caption="New safe place at the bushes" >}}
+
 The challenge when walking with Deet outdoors is that she might get scared at very random things. We have always tried to create nice memories for her while being at parks. And one things we have tried is to give her a bone to relax.
 
 {{<figure src="/images/deet-eating-bone.png" caption="Deet enjoying her bone" >}}
@@ -54,7 +56,7 @@ At some point, Deet started to look more relaxed and even playful. It is then th
 
 At first, Deet wanted to just go further and enjoy some alone time.
 
-{{<figure src="" caption="Deet smelling the air" >}}
+{{<figure src="/images/img_20200711_205556.jpg" caption="Deet smelling the air" >}}
 
 We were just happy that Deet had a bit more freedom and bravery to walk around and be excited about the new smells and views. However, to our positive surprise, she started walking towards us after a while. Having her deliberately choose our company felt amazing!
 
