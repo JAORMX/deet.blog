@@ -7,7 +7,7 @@ title = "Day 8 -  Deet warms up to us"
 type = "post"
 
 +++
-In the evening we decided to get some fresh air outside. We hoped it could help Deet's schedule which is very upside down at the moment. It turned out great! We finally saw Deet choosing our company instead of being by herself, and were even able to have a small training session with her.
+In the evening we decided to get some fresh air outside. We hoped it could help Deet's schedule, which is very upside down at the moment. It turned out great! We finally saw Deet choosing our company instead of being by herself, and were even able to have a small training session with her.
 
 Milestones:
 
@@ -15,23 +15,23 @@ Milestones:
 * It was the first time Deet got interested in toys.
 * It was also the first time we had a small training session.
 * Deet started walking on her leash (not only laying by a bush).
-* Deet hanged out with us in the living room (and even took a nap there).
+* Deet hung out with us in the living room (and even took a nap there). 
 
 ***
 
 Deet still has a teenager schedule, sleeping in the days and staying awake at night :D. So, in the morning, you can notice she's had an interesting adventure at night.
 
-{{<figure src="/images/20200711_074601.jpg" caption="Paws aiming at the ceiling, shoe laces in her mouth, and her nose outside of the crate" >}}
+{{<figure src="/images/20200711_074601.jpg" caption="Paws aiming at the ceiling, shoelaces in her mouth, and her nose outside of the crate" >}}
 
 {{< youtube Vkbhk2Jd7J0 >}}
 
-Given her activities at night, it was a little hard to convince her to go out of her safe place in the day. Around 5pm, our teenager finally started waking up! So we thought it would be a good idea to bring her out to get some fresh air! Still, it's not going as smooth as we would hope. But we're getting there.
+Given her activities at night, it was a little hard to convince her to go out of her safe place in the day. Around 5 pm, our teenager finally started waking up! So we thought it would be a good idea to bring her out to get some fresh air! Still, it's not going as smoothly as we would hope. But we're getting there.
 
 {{< figure src="/images/20200711_183351.jpg" caption="Trying to convince Deet to go outside" >}}
 
 ### Finally at the park
 
-The beginning at the park is always tricky. Since she's still quite afraid to get out in the beginning, we have to carry her outside. After that, all she wants to do is find a safe spot to wind down and feel better.
+In the beginning, at the park, it is always tricky. Since she's still quite afraid to get out in the beginning, we have to carry her outside. After that, all she wants to do is find a safe spot to wind down and feel better.
 
 {{< figure src="/images/img_20200711_184732.jpg" caption="Deet and Mirkka at the current _safe place_" >}}
 
@@ -39,15 +39,15 @@ The beginning at the park is always tricky. Since she's still quite afraid to ge
 
 {{< figure src="/images/img_20200711_185243.jpg" >}}
 
-We learned today that if she gets stuck at a _safe place_, it's ok to push her a little bit and carry her elsewhere. She ends up forgetting quickly about her previous safe place and gets excited about new smells and things at the new location.
+We learned today that if she gets stuck in a _safe place_, it's ok to push her a little bit and carry her elsewhere. She ends up forgetting quickly about her previous safe place and gets excited about new smells and things at the new location.
 
 {{< figure src="/images/20200711_191840.jpg" caption="Walking with Deet in the park" >}}
 
-{{< figure src="/images/20200711_192227.jpg" caption="Her favourite place to walk is besides the bushes" >}}
+{{< figure src="/images/20200711_192227.jpg" caption="Her favorite place to walk is beside the bushes" >}}
 
 {{< figure src="/images/20200711_200151.jpg" caption="New safe place at the bushes" >}}
 
-The challenge when walking with Deet outdoors is that she might get scared at very random things. We have always tried to create nice memories for her while being at parks. And one things we have tried is to give her a bone to relax.
+The challenge when walking with Deet outdoors is that she might get scared at very random things. We have always tried to create nice memories for her while being at parks. And one thing we have tried is to give her a bone to relax.
 
 {{< figure src="/images/deet-eating-bone.png" caption="Deet enjoying her bone" >}}
 
@@ -55,19 +55,19 @@ Also, this was the first day Deet was interested in toys. As a rescue dog who ha
 
 {{< figure src="/images/20200711_194028.jpg" >}}
 
-At some point, Deet started to look more relaxed and even playful. It is then that we realised that her leash was too short for this. We had previously bought a long (15m) leash for training and playing sessions outdoors. It's very handy since you can tie it around you and your dog will get more freedom, while still being safe.
+At some point, Deet started to look more relaxed and even playful. It is then that we realized that her leash was too short for this. We had previously bought a long (15m) leash for training and playing sessions outdoors. It's convenient since you can tie it around you and your dog will get more freedom, while still being safe.
 
-At first, Deet wanted to just go further and enjoy some alone time.
+At first, Deet wanted just to go further and enjoy some alone time.
 
 {{< figure src="/images/img_20200711_205556.jpg" caption="Deet smelling the air" >}}
 
-We were just happy that Deet had a bit more freedom and bravery to walk around and be excited about the new smells and views. However, to our positive surprise, she started walking towards us after a while. Having her deliberately choose our company felt amazing!
+We were just happy that Deet had a bit more freedom and bravery to walk around and be excited about the new smells and views. However, to our positive surprise, she started walking towards us after a while. Having her deliberately choose our company felt terrific!
 
 {{< figure src="/images/20200711_214136-1.jpg" caption="Deet arrived to chill out with us (and to have some chicken...)" >}}
 
-She was in a very good mood! We try to get a positive association for her to get near us, so, whenever she does, we give her a small treat for it. It seems to work, cause she was really enjoying being around us. She seemed very receptive and happy, so we decided to try out some small training session where we started teaching her very basic things. The idea was just to try it out because she seemed excited. But at this point our main goal is to make her feel safe and confident with us. (Never try to train the dog if the he/she is too overwhelmed or scared!)
+She was in an excellent mood! We try to get a positive association for her to get near us, so whenever she does, we give her a small treat for it. It seems to work, cause she was enjoying being around us. She seemed very receptive and happy, so we decided to try out some small training session where we started teaching her very basic things. The idea was just to try it out because she seemed excited. But at this point, our primary goal is to make her feel safe and confident with us. (Never try to train the dog if it is too overwhelmed or scared!)
 
-Getting contact and communication with your dog is very important, so we started to teach her to look at us ("katso" in Finnish), to come to us ("tule" in Finnish) and even the first steps towards sitting ("istu" in Finnish). The most rewarding thing for us was that we noticed that Deet was really enjoying it.
+Getting contact and communication with your dog is very important, so we started to teach her to look at us ("katso" in Finnish), to come to us ("tule" in Finnish) and even the first steps towards sitting ("istu" in Finnish). The most rewarding thing for us was that we noticed that Deet was enjoying it.
 
 {{<figure src="/images/20200711_214940-0.jpg" caption="Training Deet" >}}
 
@@ -79,10 +79,10 @@ After a long day outside, we started to walk back home. At this point, Deet was 
 
 {{< youtube X3YYElnrRRg >}}
 
-Finally, after a long session outside, she chilled out besides us in the living room. This was the first time she ever did this!
+Finally, after a long session outside, she chilled out beside us in the living room. This was the first time she ever did this!
 
 {{< figure src="/images/20200711_225207.jpg" >}}
 
-At some point she even took a nap besides us. This was the cherry on the top of the cake for today.
+At some point, she even took a nap beside us. This was the cherry on the top of the cake for today.
 
 {{< figure src="/images/20200711_230036.jpg" >}}
