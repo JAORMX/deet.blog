@@ -79,8 +79,8 @@ After a long day outside, we started to walk back home. At this point, Deet was 
 
 Finally, after a long session outside, she chilled out besides us in the living room. This was the first time she ever did this!
 
-{{< /images/20200711_225207.jpg" >}}
+{{< figure src="/images/20200711_225207.jpg" >}}
 
 At some point she even took a nap besides us. This was the cherry on the top of the cake for today.
 
-{{< /images/20200711_230036.jpg >}}
+{{< figure src="/images/20200711_230036.jpg" >}}
