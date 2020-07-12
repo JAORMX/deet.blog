@@ -48,7 +48,7 @@ We learned today that if she gets stuck at a _safe place_, it's ok to push her a
 
 The challenge when walking with Deet outdoors is that she might get scared at very random things. We have always tried to create nice memories for her while being at parks. And one things we have tried is to give her a bone to relax.
 
-{{<figure src="" caption="Deet enjoying her bone" >}}
+{{<figure src="/images/deet-eating-bone.png" caption="Deet enjoying her bone" >}}
 
 At some point, Deet started to look more relaxed and even playful. It is then that we realised that her leash was too short for this. We had previously bought a long (15m) leash for training and playing sessions outdoors. It's very handy since you can tie it around you and your dog will get more freedom, while still being safe.
 
