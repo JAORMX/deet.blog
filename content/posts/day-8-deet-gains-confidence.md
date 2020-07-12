@@ -34,9 +34,9 @@ Given her activities at night, it was a little hard to convince her to go out of
 
 The beginning at the park is always tricky. Since she's still quite afraid to get out in the beginning, we have to carry her outside. After that, all she wants to do is find a safe spot to wind down and feel better.
 
-{{< figure src="" caption="Starting the walk" >}}
-
 {{< figure src="/images/img_20200711_184732.jpg" caption="Deet and Mirkka at the current _safe place_" >}}
+
+{{< figure src="/images/img_20200711_184119.jpg" >}}
 
 We learned today that if she gets stuck at a _safe place_, it's ok to push her a little bit and carry her elsewhere. She ends up forgetting quickly about her previous safe place and gets excited about new smells and things at the new location.
 
