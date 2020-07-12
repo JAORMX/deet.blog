@@ -28,15 +28,15 @@ Deet still has a teenager schedule, sleeping in the days and staying awake at ni
 
 Given her activities at night, it was a little hard to convince her to go out of her safe place in the day. Around 5pm, our teenager finally started waking up! So we thought it would be a good idea to bring her out to get some fresh air! Still, it's not going as smooth as we would hope. But we're getting there.
 
-{{<figure src="" caption="Trying to convince Deet to go outside" >}}
+{{< figure src="/images/20200711_183351.jpg" caption="Trying to convince Deet to go outside" >}}
 
 ### Finally at the park
 
 The beginning at the park is always tricky. Since she's still quite afraid to get out in the beginning, we have to carry her outside. After that, all she wants to do is find a safe spot to wind down and feel better.
 
-{{<figure src="" caption="Deet and Mirkka at the current _safe place_" >}}
+{{< figure src="" caption="Deet and Mirkka at the current _safe place_" >}}
 
-{{<figure src="" caption="Deet getting courage at a _safe place_" >}}
+{{< figure src="" caption="Deet getting courage at a _safe place_" >}}
 
 We learned today that if she gets stuck at a _safe place_, it's ok to push her a little bit and carry her elsewhere. She ends up forgetting quickly about her previous safe place and gets excited about new smells and things at the new location.
 
