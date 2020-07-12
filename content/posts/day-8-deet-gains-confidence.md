@@ -46,7 +46,7 @@ We learned today that if she gets stuck at a _safe place_, it's ok to push her a
 
 {{<figure src="/images/20200711_192227.jpg" caption="Her favourite place to walk is besides the bushes" >}}
 
-{{<figure src="" caption="New safe place at the bushes" >}}
+{{<figure src="/images/20200711_200151.jpg" caption="New safe place at the bushes" >}}
 
 The challenge when walking with Deet outdoors is that she might get scared at very random things. We have always tried to create nice memories for her while being at parks. And one things we have tried is to give her a bone to relax.
 
