@@ -3,7 +3,7 @@ author = "mirkka and ozz"
 categories = ["Dog", "Deet"]
 date = 2020-07-06T13:17:50Z
 description = "Deet loves chicken"
-title = "Day 3 Deet loves chicken!"
+title = "Day 3 - Deet loves chicken!"
 type = "post"
 
 +++

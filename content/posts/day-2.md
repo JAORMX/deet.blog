@@ -1,5 +1,5 @@
 ---
-title: Day 2 Scared and tired
+title: Day 2 - Scared and tired
 date: 2020-07-05T09:26:49.000+03:00
 author: Mirkka and Ozz
 categories:
