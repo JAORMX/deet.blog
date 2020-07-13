@@ -29,7 +29,7 @@ But Deet sleeps.. and sleeps.... and sleeps.. and sleeps. Usually, she wakes up 
 
 So we just waited.. and waited.. and kept on waiting. And in some point you realise it's starts to feel little bit bad. It's not Deet's fault, it's us. We should not make expectation yet if another day goes very well. Also, we shouldn't be just waiting. We should do stuff while we wait even how hard it is to concentrate on other things while your dog is in the apartment.
 
-We decided to give her some "me time" and we left outside to have a ice cream. Also, the break was healthy for us :D
+We decided to give her some "me time" and we left outside to have an ice cream. Also, the break was healthy for us :D
 
 {{< figure src="/images/20200712_181113.jpg >}}
 
