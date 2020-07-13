@@ -19,4 +19,10 @@ Mailstones
 
 ***
 
+This was the view all day. No clouds, sun is shining and little fresh wind was playing in the air.
+
 ![](/images/20200712_161658.jpg)
+
+But Deet sleeps.. and sleeps.... and sleeps.. and sleeps. Usually, she wakes up a little when we do our every day things in the apartment. But she doesn't come out from the crate and she seems very sleepy. Even if she didn't sleep, we can't go and lift her up because we don't want to violent her safe spot which has became so important to her.
+
+So we just waited.. and waited.. and kept on waiting. And in some point you realise it's starts to feel little bit bad. It's not Deet's fault, it's us. We should not make expectation yet if another 
