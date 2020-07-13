@@ -25,4 +25,8 @@ This was the view all day. No clouds, sun is shining and little fresh wind was p
 
 But Deet sleeps.. and sleeps.... and sleeps.. and sleeps. Usually, she wakes up a little when we do our every day things in the apartment. But she doesn't come out from the crate and she seems very sleepy. Even if she didn't sleep, we can't go and lift her up because we don't want to violent her safe spot which has became so important to her.
 
-So we just waited.. and waited.. and kept on waiting. And in some point you realise it's starts to feel little bit bad. It's not Deet's fault, it's us. We should not make expectation yet if another 
+{{< figure src="/images/20200712_124021.jpg" caption "Deet during the day when you look in her crate" >}}
+
+So we just waited.. and waited.. and kept on waiting. And in some point you realise it's starts to feel little bit bad. It's not Deet's fault, it's us. We should not make expectation yet if another day goes very well. Also, we shouldn't be just waiting. We should do stuff while we wait even how hard it is to concentrate on other things while your dog is in the apartment.
+
+We decided to give her some "me time" and we left outside to have a ice cream. Also, the break was healthy for us :D
