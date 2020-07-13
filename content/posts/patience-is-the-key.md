@@ -37,8 +37,20 @@ The little me time for everyone was great and we had better energy after that.
 
 We were chilling out at home and suddenly in the evening Deet decided to show up. We really wanted to go out, but putting the harness on took already so much effort and made Deet stay in her crate again so we started to give up with the idea. Also, learning point: we don't take the harness off for nights anymore!
 
-We got her out with her one very favourite treat: chicken broth popsicles. 
+We got her out form the crate with her one very favourite treat: chicken broth popsicles. 
 
 ![](/images/img_20200712_220414.jpg) 
 
-And so it started: Deet started to appear again and again to the living room. And every time she came to us we gave her treats. And she got happy, excited and playful. She seemed to have a lot of energy so we decided to try the kongi.
+After some while she did her business inside and we really needed to take her to shower. Also, it was time to shower her anyway. First, she was nervous but in the end she seemed even like it. The bathroom also got her interest and she wanted to go there many times after the bath.
+
+![](/images/20200712_232153.jpg)
+
+![](/images/20200712_224511.jpg)
+
+We can't say she really got the idea of rolling the toy yet but she was happy to try to get them out by liking the toy :D 
+
+After this she got even more excited and we decided to try another toy. 
+
+![](/images/20200712_233659.jpg)
+
+And it worked! This was the best tug of war game we have had with her so far. 
