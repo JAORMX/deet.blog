@@ -33,24 +33,26 @@ We decided to give her some "me time" and we left outside to have a ice cream. A
 
 {{< figure src="/images/20200712_181113.jpg >}}
 
-The little me time for everyone was great and we had better energy after that. 
+The little me time for everyone was great and we had better energy after that.
 
 We were chilling out at home and suddenly in the evening Deet decided to show up. We really wanted to go out, but putting the harness on took already so much effort and made Deet stay in her crate again so we started to give up with the idea. Also, learning point: we don't take the harness off for nights anymore!
 
-We got her out form the crate with her one very favourite treat: chicken broth popsicles. 
+We got her out form the crate with her one very favourite treat: chicken broth popsicles.
 
-![](/images/img_20200712_220414.jpg) 
+![](/images/img_20200712_220414.jpg)
 
 After the popsicles we decided to give a try to kongi because she seemed to have some energy now. We can't say she really got the idea of rolling the toy yet but she was happy to try to get them out by liking the toy :D
 
 ![](/images/20200712_224511.jpg)
 
-djdjjdjdjdjdjd
+After this game she did her business inside and we really needed to clean her up. We gave her a shower, which was first quite uncomfortable to her but in the end she seemed even like it (?!). After the shower she got great energy and started to be playful and happy. As if we washed all the stress away :D
 
 ![](/images/20200712_232153.jpg)
 
-After this she got even more excited and we decided to try another toy. 
+We started to train the basic "come here" and "look" with her and it went surprisingly well. She got very excited and clearly wanted to play as well. So decided to try another toy.
 
 ![](/images/20200712_233659.jpg)
 
-And it worked! This was the best tug of war game we have had with her so far. 
+And it worked! This was the best tug of war game we have had with her so far. The toys and the concept of playing with them is so new to her that we just need to little by little introduce that her!
+
+![](/images/20200712_224102.jpg)
