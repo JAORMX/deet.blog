@@ -41,13 +41,13 @@ We got her out form the crate with her one very favourite treat: chicken broth p
 
 ![](/images/img_20200712_220414.jpg) 
 
-After some while she did her business inside and we really needed to take her to shower. Also, it was time to shower her anyway. First, she was nervous but in the end she seemed even like it. The bathroom also got her interest and she wanted to go there many times after the bath.
-
-![](/images/20200712_232153.jpg)
+After the popsicles we decided to give a try to kongi because she seemed to have some energy now. We can't say she really got the idea of rolling the toy yet but she was happy to try to get them out by liking the toy :D
 
 ![](/images/20200712_224511.jpg)
 
-We can't say she really got the idea of rolling the toy yet but she was happy to try to get them out by liking the toy :D 
+djdjjdjdjdjdjd
+
+![](/images/20200712_232153.jpg)
 
 After this she got even more excited and we decided to try another toy. 
 
