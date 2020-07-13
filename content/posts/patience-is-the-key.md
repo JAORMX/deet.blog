@@ -45,15 +45,15 @@ After the popsicles, we decided to give a try to kong toy because she seemed to 
 
 ![/images/20200712_224511.jpg](https://app.forestry.io/sites/pqtrwwknkydruw/body-media//images/20200712_224511.jpg)
 
-After this game she did her business inside the apartment, and we really needed to clean her up. We gave her a shower, which was at first quite uncomfortable for her, but in the end, she seemed even like it (?!).
+After this game, she did her business inside the apartment, and we really needed to clean her up. We gave her a shower, which was at first quite uncomfortable for her, but in the end, she seemed even like it (?!).
 
 ![/images/20200712_232146.jpg](https://app.forestry.io/sites/pqtrwwknkydruw/body-media//images/20200712_232146.jpg)
 
-After the shower she got great energy and started to be playful and happy. As if we washed all the stress away :D We started to train the basic "come here" and "look" with her and it went surprisingly well. She got very excited and clearly wanted to play as well. So decided to try another toy.
+After the shower, she got great energy and started to be playful and happy. As if we washed all the stress away :D We started to train the basic "come here" and "look" with her and it went surprisingly well. She got very excited and clearly wanted to play as well. So decided to try another toy.
 
 ![/images/20200712_233659.jpg](https://app.forestry.io/sites/pqtrwwknkydruw/body-media//images/20200712_233659.jpg)
 
-And it worked! This was the best tug of war game we have had with her so far. The toys and the concept of playing with them is so new to her that we just need to little by little introduce that her!
+And it worked! This was the best tug of war game we have had with her so far. The toys and the concept of playing with them are so new to her that we just need to little by little introduce that her!
 
 Later in the evening Deet really wanted to continue "come" and "look" training and it started to go very fluently
 
@@ -61,10 +61,10 @@ Later in the evening Deet really wanted to continue "come" and "look" training a
 
 ![/images/20200712_235108.jpg](https://app.forestry.io/sites/pqtrwwknkydruw/body-media//images/20200712_235108.jpg)
 
-Here is a little tasting how excited she was when calling her in the evening.
+Here is a little taste of how excited she was when calling her in the evening.
 
 {{< youtube x2sZhUMwbr0 >}}
 
-Before sleeping, Deet continued coming to us even if we didn't give treats anymore. She let us to pet her and she seemed calm and happy.
+Before sleeping, Deet continued coming to us even if we didn't give treats anymore. She let us pet her and she seemed calm and happy.
 
-In the end the day that felt so difficult turned to have lot to give!
+In the end, the day that felt so difficult turned out to have a lot to give!
