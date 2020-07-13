@@ -41,11 +41,11 @@ We got her out form the crate with her one very favourite treat: chicken broth p
 
 ![](/images/img_20200712_220414.jpg)
 
-After the popsicles we decided to give a try to kongi because she seemed to have some energy now. We can't say she really got the idea of rolling the toy yet but she was happy to try to get them out by liking the toy :D
+After the popsicles we decided to give a try to kongi toy because she seemed to have some energy now. We can't say she really got the idea of rolling the toy yet but she was happy to try to get the food out by liking :D
 
 ![](/images/20200712_224511.jpg)
 
-After this game she did her business inside and we really needed to clean her up. We gave her a shower, which was first quite uncomfortable to her but in the end she seemed even like it (?!). After the shower she got great energy and started to be playful and happy. As if we washed all the stress away :D
+After this game she did her business inside the apartment and we really needed to clean her up. We gave her a shower, which was first quite uncomfortable to her but in the end she seemed even like it (?!). After the shower she got great energy and started to be playful and happy. As if we washed all the stress away :D
 
 ![](/images/20200712_232153.jpg)
 
