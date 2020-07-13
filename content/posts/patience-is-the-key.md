@@ -7,7 +7,7 @@ title = "Day 9 - Patience is the key"
 type = "post"
 
 +++
-![](/images/20200713_010238.jpg)Today the frustration raised its head. Deet was sleeping and staying in her crate almost all day. The blue sky and sunshine were calling us to the parks, but Deet decided to show up after 8 pm. After that, we had such a fantastic evening at home! But the day taught as many things again..
+Today the frustration raised its head. Deet was sleeping and staying in her crate almost all day. The blue sky and sunshine were calling us to the parks, but Deet decided to show up after 8 pm. After that, we had such a fantastic evening at home! But the day taught as many things again..
 
 Milestones:
 
@@ -24,7 +24,7 @@ This was the view all day. No clouds, the sun is shining, and little fresh wind 
 
 But Deet slept, slept and slept... and then slept more. Usually, she wakes up a little when we do our every day things in the apartment. But she doesn't come out from the crate and she seems very sleepy. Even if she didn't sleep, we can't go and lift her because we don't want to mess with her safe spot, which has become so important to her.
 
-{{< figure src="/images/20200712_124021.jpg" caption "Deet during the day when you look in her crate" >}}
+{{< figure src="/images/20200712_124021.jpg" caption="Deet during the day when you look in her crate" >}}
 
 So we just waited... and waited... and kept on waiting. And at some point, you realize that it starts to feel a little bit bad. It's not Deet's fault, it's us. We should not make expectations yet if another day goes very well. Also, we shouldn't be just waiting. We should do stuff while we wait even how hard it is to concentrate on other things while your dog is in the apartment.
 
