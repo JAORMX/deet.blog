@@ -39,4 +39,6 @@ We were chilling out at home and suddenly in the evening Deet decided to show up
 
 We got her out with her one very favourite treat: chicken broth popsicles. 
 
- 
+![](/images/img_20200712_220414.jpg) 
+
+And so it started: Deet started to appear again and again to the living room. And every time she came to us we gave her treats. And she got happy, excited and playful. She seemed to have a lot of energy so we decided to try the kongi.
