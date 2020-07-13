@@ -30,7 +30,7 @@ So we just waited... and waited... and kept on waiting. And at some point, you r
 
 We decided to give her some "me time," and we left outside to have ice cream. Also, the break was healthy for us :D
 
-{{< figure src="/images/20200712_181113.jpg >}}
+{{< figure src="/images/20200712_181113.jpg" >}}
 
 The little "me time" for everyone was great ,and we had better energy after that.
 
