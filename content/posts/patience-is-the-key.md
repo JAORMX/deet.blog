@@ -55,4 +55,12 @@ We started to train the basic "come here" and "look" with her and it went surpri
 
 And it worked! This was the best tug of war game we have had with her so far. The toys and the concept of playing with them is so new to her that we just need to little by little introduce that her!
 
+Later in the evening Deet really wanted to continue "come" and "look" training and it started to go very fluently
+
 ![](/images/20200712_224102.jpg)
+
+![](/images/20200712_235108.jpg)
+
+Here is a little tasting how excited she was. 
+
+{{< youtube x2sZhUMwbr0 >}}
