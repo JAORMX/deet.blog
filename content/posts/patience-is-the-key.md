@@ -45,11 +45,11 @@ After the popsicles we decided to give a try to kongi toy because she seemed to 
 
 ![](/images/20200712_224511.jpg)
 
-After this game she did her business inside the apartment and we really needed to clean her up. We gave her a shower, which was first quite uncomfortable to her but in the end she seemed even like it (?!). After the shower she got great energy and started to be playful and happy. As if we washed all the stress away :D
+After this game she did her business inside the apartment and we really needed to clean her up. We gave her a shower, which was first quite uncomfortable to her but in the end she seemed even like it (?!). 
 
-![](/images/20200712_232153.jpg)
+![](/images/20200712_232146.jpg)
 
-We started to train the basic "come here" and "look" with her and it went surprisingly well. She got very excited and clearly wanted to play as well. So decided to try another toy.
+After the shower she got great energy and started to be playful and happy. As if we washed all the stress away :D  We started to train the basic "come here" and "look" with her and it went surprisingly well. She got very excited and clearly wanted to play as well. So decided to try another toy.
 
 ![](/images/20200712_233659.jpg)
 
@@ -61,10 +61,10 @@ Later in the evening Deet really wanted to continue "come" and "look" training a
 
 ![](/images/20200712_235108.jpg)
 
-Here is a little tasting how excited she was. 
+Here is a little tasting how excited she was when calling her in the evening.
 
 {{< youtube x2sZhUMwbr0 >}}
 
-Before sleeping, Deet continue coming to us even if we didn't give treats anymore. She let us to pet her and she seemed calm and happy. 
+Before sleeping, Deet continued coming to us even if we didn't give treats anymore. She let us to pet her and she seemed calm and happy. 
 
 In the end the day that felt so difficult turned to have lot to give!
