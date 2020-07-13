@@ -3,7 +3,7 @@ author = "mirkka and ozz"
 categories = ["Dog", "Deet"]
 date = 2020-07-07T13:19:11Z
 description = ""
-title = "Day 4: Night adventurer"
+title = "Day 4 - Night adventurer"
 type = "post"
 
 +++

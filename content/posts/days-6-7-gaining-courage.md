@@ -3,7 +3,7 @@ author = "mirkka and ozz"
 categories = []
 date = 2020-07-09T14:51:00Z
 description = ""
-title = "Days 5 & 6: Gaining courage "
+title = "Days 5 & 6 - Gaining courage "
 type = "post"
 
 +++
