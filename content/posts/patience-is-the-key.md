@@ -64,3 +64,7 @@ Later in the evening Deet really wanted to continue "come" and "look" training a
 Here is a little tasting how excited she was. 
 
 {{< youtube x2sZhUMwbr0 >}}
+
+Before sleeping, Deet continue coming to us even if we didn't give treats anymore. She let us to pet her and she seemed calm and happy. 
+
+In the end the day that felt so difficult turned to have lot to give!
