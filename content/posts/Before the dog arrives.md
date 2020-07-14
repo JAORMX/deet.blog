@@ -7,7 +7,6 @@ title = "Before Deet arrives"
 type = "post"
 
 +++
-## Waiting for Deet
 
 {{< figure src="/images/whatsapp-image-2020-07-09-at-12-16-15.jpeg" >}}
 
