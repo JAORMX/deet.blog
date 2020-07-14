@@ -3,7 +3,6 @@ author = "mirkka and ozz"
 categories = []
 date = 2020-07-14T07:03:00Z
 description = ""
-draft = true
 title = "Day 10: Trying to change Deet's schedule"
 type = "post"
 
@@ -18,16 +17,16 @@ Milestones today
 * Deet was having a great time in the park.
 * She approaches us when we were outdoors!
 * She follows the "come here" command every now and then - a great start!
-* Deet is very calm when she sees other dogs, humans, birds etc. at the park.
+* Deet is very calm when she sees other dogs, humans, birds, etc. at the park.
 * She walked much better in the leash.
 * First poop outside!!!!
 * We brushed her and she really enjoyed it :)
 
 ***
 
-Deet's schedule has been a little problematic so far, and our next big goal is to try to change it. We talked with our contact person from Kulkurit and created a plan: we try different treats and try to find her top 1 (chicken works, but not in every case) and then try to get her out little earlier every day.
+Deet's schedule has been a little problematic so far, and our next big goal is to try to change it. We talked with our contact person from Kulkurit and created a plan: we try different treats and try to find her top 1 (chicken works, but not in every case) and then try to get her out a little earlier every day.
 
-This morning she seemed to be more awake than before. We were able to get her out from the crate by introducing meatballs to her. But after a little while she went back to the crate. It's ok, it was a good start and in the end we all took a nap :D
+This morning she seemed to be more awake than before. We were able to get her out from the crate by introducing meatballs to her. But after a little while, she went back to the crate. It's ok, it was a good start and in the end, we all took a nap :D
 
 Other than that, the evening went like usual: Deet wakes up in the evening and it always takes time to get her out of the crate so that we would be able to go out. This time it also took more time because we changed the harness.
 
@@ -43,7 +42,7 @@ Deet really, _really_ enjoys being outdoors. Also, we have one 15m long leash an
 
 {{< youtube An-qh8YDnyg >}}
 
-The most awarding thing is to see how Deet has started to get excited about us as well. She comes to say "hello" to us every once in a while if we sit in the park, and sometimes she prefers to stay with us instead of exploring the park all the time.
+The most rewarding thing is to see how Deet has started to get excited about us as well. She comes to say "hello" to us every once in a while if we sit in the park, and sometimes she prefers to stay with us instead of exploring the park all the time.
 
 {{< youtube biCywpctjBU >}}
 
@@ -55,19 +54,19 @@ Also, Deet had good moments in the leash. She walked calmly and one surprising t
 
 {{< youtube LYnReAEYAkY >}}
 
-Yet, the walk doesn't go as planned. Deet loves to hide in the bushes if there is anything that makes her nervous. I think these are the proudest moments when she is hidden in the bushes like a little bunny and doesn't want to go out :D
+There are a lot of good moments, however, it isn't very smooth yet. Deet loves to hide in the bushes if there is anything that makes her nervous. Maybe these aren't the proudest moments as a dog-owner, when she decides to hide in the bushes like a little bunny and doesn't want to go out :D
 
 ![](/images/20200713_195052.jpg)
 
 ![](/images/20200713_195044.jpg)
 
-Anyhow, the evening was super fun! We also tried to run a little with her so she could get little bit exercise. After the shelter life, long car trip and all the long sleeps she has had at our apartment, we need to get her to do some exercise little by little.
+Anyhow, the evening was super fun! We also tried to run a little with her so she could get some exercise. After the shelter life, a long car trip, and all the long sleep she has had at our apartment, we need to get her to do some exercise little by little.
 
 ![](/images/20200713_211726.jpg)
 
 ![](/images/20200713_211007.jpg)
 
-Even if we love to play and explore the park with Deet, we always give her time for her own. Usually, she goes little bit further to lay down for a little while and just observes what is going on in the park. All of us needs some me-time every now and then.
+Even if we love to play and explore the park with Deet, we always give her time for her own. Usually, she goes a little bit further to lay down for a while and just observes what is going on in the park. All of us need some me-time every now and then.
 
 ![](/images/20200713_204059.jpg)
 
@@ -77,8 +76,8 @@ Later, we decided to have a water break and introduce a brush to  Deet. It didn'
 
 ![](/images/20200713_214404.jpg)
 
-We also realised that her fur has started to shine little bit more. It might be the salmon food we have given her, it should be good for the fur and skin.
+We also realized that her fur has started to shine a bit more. It might be the salmon food we have given her since it should be good for the fur and skin.
 
-So, it was a good day indeed! And we all got change to enjoy the beautiful summer evening.
+So, it was a good day indeed! And we all got a chance to enjoy the beautiful summer evening.
 
 ![](/images/20200713_195803.jpg)
