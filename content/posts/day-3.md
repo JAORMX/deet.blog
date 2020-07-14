@@ -29,7 +29,7 @@ As mentioned in the previous blog post, in the morning, Deet was shy and stayed 
 
 Today was the first morning where we got worried and a little sad that she wasn’t coming out of her crate and seemed very scared. So we decided to give her space.
 
-{{< figure src="/images/whatsapp-image-2020-07-09-at-13-11-14.jpeg" caption="Sad Deet" >}}
+{{< figure src="/images/whatsapp-image-2020-07-09-at-13-11-14.jpeg" caption="Tired Deet" >}}
 
 Our amazing contact from Kulkurit asked how we were doing and advised us to try giving her treats of boiled chicken. So we gave that a try, and… Jackpot!
 
@@ -37,7 +37,7 @@ Our amazing contact from Kulkurit asked how we were doing and advised us to try 
 
 She changed from night to day!
 
-{{< figure src="/images/20200706_153325.jpg" caption="Happy Deet" >}}
+{{< figure src="/images/20200706_153325.jpg" caption="Deet got excited" >}}
 
 First, we just gave her some treats in front of her crate. This cheered her up and she started approaching us more. At some point, we thought it was enough and decided to give her space again. However, Deet had something else in her mind… she was curious and wanted more of that tasty chicken!
 
