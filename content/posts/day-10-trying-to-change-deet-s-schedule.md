@@ -29,7 +29,7 @@ Deet's schedule has been a little problematic so far, and our next big goal is t
 
 This morning she seemed to be more awake than before. We were able to get her out from the crate by introducing meatballs to her. But after a little while she went back to the crate. It's ok, it was a good start and in the end we all took a nap :D
 
-Other than that, the evening went like usually: Deet wakes up in the evening and it always takes time to get her out of the create so that we would be able to go out. This time it also took more time because we changed the harness.
+Other than that, the evening went like usual: Deet wakes up in the evening and it always takes time to get her out of the crate so that we would be able to go out. This time it also took more time because we changed the harness.
 
 ![](/images/20200713_192905.jpg)
 
@@ -43,15 +43,15 @@ Deet really, _really_ enjoys being outdoors. Also, we have one 15m long leash an
 
 {{< youtube An-qh8YDnyg >}}
 
-The most awarding thing is to see how Deet has started to get excited about us as well. She comes every while to say "hello" to us if we sit in the park and sometimes she prefers to stay with us instead of exploring the park all the time.
+The most awarding thing is to see how Deet has started to get excited about us as well. She comes to say "hello" to us every once in a while if we sit in the park, and sometimes she prefers to stay with us instead of exploring the park all the time.
 
 {{< youtube biCywpctjBU >}}
 
 ![](/images/img_20200713_200217.jpg)
 
-Other achievement was the first outdoors poop! :D Every dog owner know how damn great thing that little daily routine is when it happens for the first time!
+Another achievement was she did her first outdoors poop! :D Every dog owner knows how damn great thing that little daily routine is when it happens for the first time!
 
-Also, Deet had good moments in the leash. She walked calmly and it's surprising thing has been that she doesn't pull at all. Only, if she gets scared and she needs to hide.
+Also, Deet had good moments in the leash. She walked calmly and one surprising thing has been that she doesn't pull at all. Only, if she gets scared and she needs to hide.
 
 {{< youtube LYnReAEYAkY >}}
 
