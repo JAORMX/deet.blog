@@ -31,3 +31,5 @@ Well, it was easier than we thought because this time Deet was awake before us a
 {{< figure src="/images/img_20200715_080056.jpg" caption="We are ready for the first morning walk!" >}}
 
 The morning was shocking for Deet. All the sounds, traffic, people, light, everything was so much more overwhelming than during the evening time. Basically the first 20 mins Deet was in bushes. She didn't want to walk at all..
+
+{{< figure src="" caption="Deet chose to go to middle of the stingy plants" >}}
