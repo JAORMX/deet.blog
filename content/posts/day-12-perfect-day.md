@@ -4,7 +4,7 @@ categories = []
 date = 2020-07-15T18:33:00Z
 description = ""
 draft = true
-title = "Day 12 -  Perfect day"
+title = "Day 12 -  We are all together"
 type = "post"
 
 +++
@@ -32,6 +32,8 @@ Well, it was easier than we thought because this time Deet was awake before us a
 
 The morning was shocking for Deet. All the sounds, traffic, people, light, everything was so much more overwhelming than during the evening time. Basically the first 20 mins Deet was in bushes. She didn't want to walk at all..
 
+{{< figure src="/images/20200715_081714.jpg" caption="First stop at the door." >}}
+
 {{< figure src="/images/20200715_081714.jpg" caption="Deet chose to go to middle of the stingy plants" >}}
 
 {{< figure src="/images/20200715_082103.jpg" >}}
@@ -43,3 +45,31 @@ After carrying her for a while she started to calm down and recognised her favou
 Deet's progress with everything has been mind blowing! Few days ago she didn't know what is a toy. Now we had already a great games together and she seemed very happy. This moments with her are priceless. 
 
 {{< youtube AY8I6yvvlbE >}}
+
+![](/images/20200715_085808.jpg)
+
+![](/images/20200715_085818.jpg)
+
+The best about this day was that we felt we were at the park all together. It wasn't anymore we taking Deet out. She was with us as much as we were with her. She came to sit and chill out with us and this was the first time she started to follow if one of us went back home to pick something. 
+
+![](/images/20200715_123741.jpg)
+
+![](/images/20200715_125932.jpg)
+
+![](/images/20200715_144722.jpg)
+
+Amazing thing about Deet is how excited she is about everything when she gains more confident. But she is still very calm and thoughtful. It feels like she is always thinking for a long time before she acts :D One interesting side about Deet has been that she hasn't barked. Not even a single little time. We don't know if she is even able to but so far she has not made a sound.
+
+Anyhow, if we don't count the times she is sitting in some random bushes like a rabbit, with this lady there is no such a thing as boring moment. During the warm summer day is good to cool down with some frozen treats.
+
+![](/images/deet-ice-treats.png)
+
+We have also continued our little training sessions with her because it always seems to make her happy and excited. This is not very goal oriented training but we have tried some basic things such as her name, look, come her and sit. Deet seems to get energy and confidence in each of this little funny sessions we have.
+
+{{< youtube mVD-cD7nWfU >}}
+
+![](/images/img_20200715_155209.jpg)
+
+At the end of the long day the amazing milestone was when Deet took a nap like this. The leg under her didn't almost have any blood circulation anymore but it's ok. It was such a great moment to have with this little one <3
+
+![](/images/20200715_182940.jpg)
