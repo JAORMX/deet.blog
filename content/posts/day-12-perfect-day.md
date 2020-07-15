@@ -32,7 +32,9 @@ Well, it was easier than we thought because this time Deet was awake before us a
 
 The morning was shocking for Deet. All the sounds, traffic, people, light, everything was so much more overwhelming than during the evening time. Basically the first 20 mins Deet was in bushes. She didn't want to walk at all..
 
-{{< figure src="/images/20200715_081714.jpg" caption="First stop at the door." >}}
+{{< figure src="/images/20200715_080353.jpg
+
+" caption="First stop at the door." >}}
 
 {{< figure src="/images/20200715_081714.jpg" caption="Deet chose to go to middle of the stingy plants" >}}
 
@@ -42,7 +44,7 @@ After carrying her for a while she started to calm down and recognised her favou
 
 ![](/images/20200715_090008.jpg)
 
-Deet's progress with everything has been mind blowing! Few days ago she didn't know what is a toy. Now we had already a great games together and she seemed very happy. This moments with her are priceless. 
+Deet's progress with everything has been mind blowing! Few days ago she didn't know what is a toy. Now we had already a great games together and she seemed very happy. This moments with her are priceless.
 
 {{< youtube AY8I6yvvlbE >}}
 
@@ -50,7 +52,7 @@ Deet's progress with everything has been mind blowing! Few days ago she didn't k
 
 ![](/images/20200715_085818.jpg)
 
-The best about this day was that we felt we were at the park all together. It wasn't anymore we taking Deet out. She was with us as much as we were with her. She came to sit and chill out with us and this was the first time she started to follow if one of us went back home to pick something. 
+The best about this day was that we felt we were at the park all together. It wasn't anymore we taking Deet out. She was with us as much as we were with her. She came to sit and chill out with us and this was the first time she started to follow if one of us went back home to pick something.
 
 ![](/images/20200715_123741.jpg)
 
