@@ -3,7 +3,7 @@ author = "mirkka and ozz"
 categories = []
 date = 2020-07-15T17:59:00Z
 description = ""
-title = "Day 11 - Schedule sucked but sleep was needed "
+title = "Day 11 - Sleep was needed "
 type = "post"
 
 +++
