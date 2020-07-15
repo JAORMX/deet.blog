@@ -32,4 +32,6 @@ Well, it was easier than we thought because this time Deet was awake before us a
 
 The morning was shocking for Deet. All the sounds, traffic, people, light, everything was so much more overwhelming than during the evening time. Basically the first 20 mins Deet was in bushes. She didn't want to walk at all..
 
-{{< figure src="" caption="Deet chose to go to middle of the stingy plants" >}}
+{{< figure src="/images/20200715_081714.jpg" caption="Deet chose to go to middle of the stingy plants" >}}
+
+{{< figure src="/images/20200715_081714.jpg" >}}
