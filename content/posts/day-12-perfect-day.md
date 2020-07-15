@@ -34,4 +34,12 @@ The morning was shocking for Deet. All the sounds, traffic, people, light, every
 
 {{< figure src="/images/20200715_081714.jpg" caption="Deet chose to go to middle of the stingy plants" >}}
 
-{{< figure src="/images/20200715_081714.jpg" >}}
+{{< figure src="/images/20200715_082103.jpg" >}}
+
+After carrying her for a while she started to calm down and recognised her favourite spot at the park. We had a breakfast at the park and it was the first one we all have had together outdoors.
+
+![](/images/20200715_090008.jpg)
+
+Deet's progress with everything has been mind blowing! Few days ago she didn't know what is a toy. Now we had already a great games together and she seemed very happy. This moments with her are priceless. 
+
+{{< youtube AY8I6yvvlbE >}}
