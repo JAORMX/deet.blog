@@ -3,7 +3,6 @@ author = "mirkka and ozz"
 categories = []
 date = 2020-07-15T18:33:00Z
 description = ""
-draft = true
 title = "Day 12 -  We are all together"
 type = "post"
 
@@ -62,22 +61,22 @@ The best thing about this day was that we felt we were at the park all together.
 
 Today Deet also considered us a safe place. For example, when another dog was walking nearby, Deet came behind us. Before, she always ran behind a tree or near to the bushes. It was good to realize that we were now a safe harbour in her mind.
 
-An amazing thing about Deet is how excited she is about everything when she gains more confidence, but she still is very calm and thoughtful. It feels like she is always thinking for a long time before she acts :D . 
+An amazing thing about Deet is how excited she is about everything when she gains more confidence, but she still is very calm and thoughtful. It feels like she is always thinking for a long time before she acts :D .
 
 Anyhow, if we don't count the times she is sitting in some random bushes like a rabbit, with this lady there is no such a thing as boring moment. During the warm summer day is good to cool down with some frozen treats.
 
 ![](/images/deet-ice-treats.png)
 
-We have also continued our little training sessions with her because it always seems to make her happy and excited. This is not very goal oriented training but we have tried some basic things such as her name, look, come her and sit. Deet seems to get energy and confidence in each of this little funny sessions we have.
+We have also continued our little training sessions with her because it always seems to make her happy and excited. This is not very goal oriented training but we have tried some basic things such as her name, look, come here and sit. Deet seems to get energy and confidence in each of this little funny sessions we have.
 
 {{< youtube mVD-cD7nWfU >}}
 
 ![](/images/img_20200715_155209.jpg)
 
-At the end of the long day the amazing milestone was when Deet took a nap like this. The leg under her didn't almost have any blood circulation anymore but it's ok. It was such a great moment to have with this little one <3
+At the end of the long day, a fantastic milestone was when Deet took a nap like this. The leg under her didn't almost have any blood circulation anymore but it was ok. It was such a great moment to have with this little one <3
 
 ![](/images/img_20200715_175911.jpg)
 
 ![](/images/20200715_182940.jpg)
 
-One interesting side about Deet has been that she hasn't barked. Not even a single little time. We don't know if she is even able to, but so far she has not made a sound.
+One interesting side about Deet has been that she hasn't barked. Not even a single little time. We don't know if she is even able to, but so far she has not made a sound. We've read that rescue dogs have this 3 to 4 week honeymoon period, where they're more submissive than they would usually be. So, let's see if after this period she starts showing us her voice a bit more. Anyway, with barks or without them, she's the most amazing dog!
