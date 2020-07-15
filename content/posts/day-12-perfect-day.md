@@ -38,11 +38,11 @@ The morning was shocking for Deet. All the sounds, traffic, people, light, every
 
 {{< figure src="/images/20200715_082103.jpg" >}}
 
-After carrying her for a while she started to calm down and recognised her favourite spot at the park. We had a breakfast at the park and it was the first one we all have had together outdoors.
+After carrying her for a while she started to calm down, and recognised her favourite spot at the park. We had a breakfast there and it was the first one we all have had together outdoors.
 
 ![](/images/20200715_090008.jpg)
 
-Deet's progress with everything has been mind blowing! Few days ago she didn't know what is a toy. Now we had already a great games together and she seemed very happy. This moments with her are priceless.
+Deet's progress with everything has been mind blowing! A few days ago she didn't know what a toy is. Now we had already great games together and she seemed very happy. This moments with her are priceless.
 
 {{< youtube AY8I6yvvlbE >}}
 
@@ -50,7 +50,7 @@ Deet's progress with everything has been mind blowing! Few days ago she didn't k
 
 ![](/images/20200715_085818.jpg)
 
-The best about this day was that we felt we were at the park all together. It wasn't anymore we taking Deet out. She was with us as much as we were with her. She came to sit and chill out with us and this was the first time she started to follow if one of us went back home to pick something.
+The best thing about this day was that we felt we were at the park all together. It wasn't anymore us taking Deet out. She was with us as much as we were with her. She came to sit and chill out with us, and this was the first time she started to follow us if one of us went back home to pick something.
 
 ![](/images/20200715_123741.jpg)
 
@@ -60,9 +60,9 @@ The best about this day was that we felt we were at the park all together. It wa
 
 ![](/images/20200715_122105.jpg)
 
-Today Deet also considered us a safety place. For example, when another dog was walking near by, Deet came behind us. Before, she has always rand behind a tree or near to the bushes. We were upgraded in her mind something related to safety and that feels very good to realise.
+Today Deet also considered us a safe place. For example, when another dog was walking nearby, Deet came behind us. Before, she always ran behind a tree or near to the bushes. It was good to realize that we were now a safe harbour in her mind.
 
-Amazing thing about Deet is how excited she is about everything when she gains more confident. But she is still very calm and thoughtful. It feels like she is always thinking for a long time before she acts :D One interesting side about Deet has been that she hasn't barked. Not even a single little time. We don't know if she is even able to but so far she has not made a sound.
+An amazing thing about Deet is how excited she is about everything when she gains more confidence, but she still is very calm and thoughtful. It feels like she is always thinking for a long time before she acts :D . 
 
 Anyhow, if we don't count the times she is sitting in some random bushes like a rabbit, with this lady there is no such a thing as boring moment. During the warm summer day is good to cool down with some frozen treats.
 
@@ -79,3 +79,5 @@ At the end of the long day the amazing milestone was when Deet took a nap like t
 ![](/images/img_20200715_175911.jpg)
 
 ![](/images/20200715_182940.jpg)
+
+One interesting side about Deet has been that she hasn't barked. Not even a single little time. We don't know if she is even able to, but so far she has not made a sound.
