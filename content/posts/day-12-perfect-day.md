@@ -60,6 +60,10 @@ The best about this day was that we felt we were at the park all together. It wa
 
 ![](/images/20200715_144722.jpg)
 
+![](/images/20200715_122105.jpg)
+
+Today Deet also considered us a safety place. For example, when another dog was walking near by, Deet came behind us. Before, she has always rand behind a tree or near to the bushes. We were upgraded in her mind something related to safety and that feels very good to realise.
+
 Amazing thing about Deet is how excited she is about everything when she gains more confident. But she is still very calm and thoughtful. It feels like she is always thinking for a long time before she acts :D One interesting side about Deet has been that she hasn't barked. Not even a single little time. We don't know if she is even able to but so far she has not made a sound.
 
 Anyhow, if we don't count the times she is sitting in some random bushes like a rabbit, with this lady there is no such a thing as boring moment. During the warm summer day is good to cool down with some frozen treats.
@@ -73,5 +77,7 @@ We have also continued our little training sessions with her because it always s
 ![](/images/img_20200715_155209.jpg)
 
 At the end of the long day the amazing milestone was when Deet took a nap like this. The leg under her didn't almost have any blood circulation anymore but it's ok. It was such a great moment to have with this little one <3
+
+![](/images/img_20200715_175911.jpg)
 
 ![](/images/20200715_182940.jpg)
