@@ -4,7 +4,7 @@ categories = []
 date = 2020-07-15T17:59:00Z
 description = ""
 draft = true
-title = "Day 10 "
+title = "Day 10 Schedule sucked but sleep was needed "
 type = "post"
 
 +++
@@ -41,6 +41,12 @@ The late evening walks have the positive side that there is not that much going 
 
 We did very similar walk as during the day before. And we ended the walk to a chill brushing and scratching session. 
 
+![](/images/20200714_232006-1.jpg)
+
 ![](/images/20200714_231957.jpg)
 
+After the walk it was time to go home. Deet walked all way back, even crossed the car road, which is usually too scary to cross by herself. 
+
 ![](/images/20200714_230857-1.jpg)
+
+Not so eventful day, but it I think it was needed for all of us :) 
