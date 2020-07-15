@@ -3,7 +3,7 @@ author = "mirkka and ozz"
 categories = []
 date = 2020-07-15T18:33:00Z
 description = ""
-title = "Day 12 -  We are all together"
+title = "Day 12 -  Things start to fall into place"
 type = "post"
 
 +++
