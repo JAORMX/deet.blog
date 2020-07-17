@@ -22,7 +22,7 @@ With the renovations that are going on in our apartment building, we wanted to g
 
 We tried it all, cheese treats, meatballs, sausages, chicken, but nothing seemed to work long enough. Deet would peek out her crate, after some attempts, she would finally get up, then eat a treat or two that are near her, and immediately fall back to her crate.
 
-{{< figure src="" caption="Deet's struggle between treats and sleep" >}}
+{{< figure src="/images/deet-in-the-crate.png" caption="Deet's struggle between treats and sleep" >}}
 
 At some point, we realized this was a lost cause, and our teenager just needed her beauty sleep. So we let her have it. We went out briefly for a coffee, then one of us for exercise while the other one for some reading, then food. Our little one just slept.
 
@@ -30,7 +30,7 @@ Finally, the time came for the workers to reach our balcony. And it was loud. De
 
 Outdoors Deet is quite happy! Every time we get there, she shows us a lot of excitement and her playful side more than anywhere else. Today, like always outdoors, we had some great playing sessions together.
 
-{{< youtube >}}
+{{< youtube wYZ6EN03crs>}}
 
 However, we did notice that today she was less willing to train or comply with our requests. We figured that since we "interrupted" her sleep, she might have been annoyed at us. She was doing this little tricks she hasn't done before and it looked like her real temper was coming out. Such as dropping her food to a ground before eating it, biting her leash and branches and not responding to us like before.
 
