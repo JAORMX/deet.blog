@@ -3,8 +3,7 @@ author = "mirkka and ozz"
 categories = ["Dog", "Deet"]
 date = 2020-07-17T06:20:00Z
 description = ""
-draft = true
-title = "Day 13 - The teenager rises"
+title = "Day 13 - One step further, one step back"
 type = "post"
 
 +++
