@@ -43,7 +43,11 @@ After the long walk, we arrived to an area with food trucks. While there wasn't 
 
 Deet handled that quite well, and even ended up taking a quick nap while we were sitting on the grass. 
 
+![](/images/20200717_154604.jpg)
+
 We've been quite adamant in not giving Deet any food from our plates or any leftovers, and this seems to have payed off. We had a pizza, and the smell of it got Deet quite interested in it, however, after some sniffs, she stopped poking at it and just laid down and rested.
+
+![](/images/20200717_153036.jpg)
 
 We did a second attempt at getting Deet interested in swimming. It was here, however, that we noticed a little bump below her fur. To our dismay, it was a tick! And unfortunately we didn't carry with us the tick removing tool. So we hurried to the nearest pharmacy to buy it. Removing the tick from Deet went fairly smoothly, however, we felt concerned that there might be more on her. We kept checking her fur, and ended up finding a couple more ticks, which we promptly removed.
 
