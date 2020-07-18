@@ -28,4 +28,8 @@ Since it was a hot day, we walked by the sea in hopes that she would get a quick
 
 After the long walk, we arrived to an area with food trucks. While there wasn't a lot of people, it was fairly noisy due to the generators used to keep electricity in the trucks. Deet handled that quite well, and even ended up taking a quick nap while we were sitting on the grass. We've been quite adamant in not giving Deet any food from our plates or any leftovers, and this seems to have payed off. We had a pizza, and the smell of it got Deet quite interested in it, however, after some sniffs, she stopped poking at it and just laid down and rested.
 
-We did a second attempt at getting Deet interested in swimming. It was here, however, that we noticed a little bump below her fur. To our 
+We did a second attempt at getting Deet interested in swimming. It was here, however, that we noticed a little bump below her fur. To our dismay, it was a tick! And unfortunately we didn't carry with us the tick removing tool. So we hurried to the nearest pharmacy to buy it. Removing the tick from Deet went fairly smoothly, however, we felt concerned that there might be more on her. We kept checking her fur, and ended up finding a couple more ticks, which we promptly removed.
+
+Needless to say we got a little stressed by this situation, but thankfully none of them were of considerable size, so they must have been there a fairly short time.
+
+Finally we walked all the way back to the park nearest to our home and decided to stick around there. Still, we couldn't shake the feeling that there might be more of them on her. And yes, we found the last tick on Deet!
