@@ -3,7 +3,6 @@ author = "mirkka and ozz"
 categories = []
 date = 2020-07-18T09:02:00Z
 description = ""
-draft = true
 title = "Day 14 - The attack of the ticks!"
 type = "post"
 
@@ -27,13 +26,13 @@ We cleaned up after her, and since we were outside already, we started her walk.
 
 ![](/images/20200717_140506.jpg)
 
-{{< youtube = 17UGKqfq-24 >}}
+{{< youtube 17UGKqfq-24 >}}
 
 Since it was a hot day, we walked by the sea in hopes that she would get a quick swim. Of course, being Deet's first time seeing the sea, it was a little intimidating at first. But she seemed to adapt fairly quickly. Unfortunately, no swimming was made, but we sure enjoying walked near there!
 
 ![](/images/20200717_143402.jpg)
 
-{{< youtube = 52zSa-xrkY >}}
+{{< youtube 52zSa-xrkY >}}
 
 ![](/images/20200717_143410.jpg)
 
