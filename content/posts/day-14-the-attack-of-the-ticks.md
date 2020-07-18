@@ -37,11 +37,15 @@ Since it was a hot day, we walked by the sea in hopes that she would get a quick
 
 ![](/images/20200717_143410.jpg)
 
-After the long walk, we arrived to an area with food trucks. While there wasn't a lot of people, it was fairly noisy due to the generators used to keep electricity in the trucks. 
+The swimming didn't work out so we decided to wet the scarf we bought for Deet. It was a very warm day so it was refreshing to have something wet and cold on the neck. And she seemed like it as well!
+
+![](/images/20200717_144350.jpg)
+
+After the long walk, we arrived to an area with food trucks. While there wasn't a lot of people, it was fairly noisy due to the generators used to keep electricity in the trucks.
 
 ![](/images/20200717_151541.jpg)
 
-Deet handled that quite well, and even ended up taking a quick nap while we were sitting on the grass. 
+Deet handled that quite well, and even ended up taking a quick nap while we were sitting on the grass.
 
 ![](/images/20200717_154604.jpg)
 
