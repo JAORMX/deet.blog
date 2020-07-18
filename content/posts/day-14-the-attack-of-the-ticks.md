@@ -41,6 +41,8 @@ The swimming didn't work out so we decided to wet the scarf we bought for Deet. 
 
 ![](/images/20200717_144350.jpg)
 
+![](/images/20200717_150126.jpg)
+
 After the long walk, we arrived to an area with food trucks. While there wasn't a lot of people, it was fairly noisy due to the generators used to keep electricity in the trucks.
 
 ![](/images/20200717_151541.jpg)
@@ -58,3 +60,7 @@ We did a second attempt at getting Deet interested in swimming. It was here, how
 Needless to say we got a little stressed by this situation, but thankfully none of them were of considerable size, so they must have been there a fairly short time.
 
 Finally we walked all the way back to the park nearest to our home and decided to stick around there. Still, we couldn't shake the feeling that there might be more of them on her. And yes, we found the last tick on Deet!
+
+We decided to chill out little bit in the nearest park before going home. Our friend came to visit and in the end everything went very well. First, Deet went little bit further but when she realised everything was ok, she even came to take treats from Irene's hand. They will be good friends in some point, thanks Irene for coming <3
+
+When we got home, we took Deet to a shower and before that did the final tick check. No ticks this time but we'll have a tick collar for sure!
