@@ -60,6 +60,8 @@ We have been surprised how well she walks with the leash. Usually there is no pr
 
 ![](/images/20200719_211155.jpg)
 
+![](/images/img_20200719_210507.jpg)
+
 ### Chilling out at home
 
 Since Deet has spent so much time in her crate, it feels incredibly good when she is chilling out with us and exploring everything.
@@ -72,4 +74,8 @@ After the walks she is really likes to hung around with us. This evening we play
 
 ![](/images/20200719_220510.jpg)
 
-In the evening, she fell asleep besides us. ![](/images/20200719_224024.jpg)
+In the evening, after the long day, she fell asleep besides us .
+
+![](/images/20200719_224024.jpg)
+
+![](/images/20200719_230342.jpg)
