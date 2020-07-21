@@ -52,4 +52,22 @@ On our way home we stopped for a pint with our friend to a beer garden, near to 
 
 ### Helsinki - such a dog friendly city!
 
-We knew that Helsinki is quite an open minded city when it comes to dogs. But it has been fantastic! People bring water to the dogs and most of the places they have own cups for the dogs. When you walk with the dog, people come to talk to you, smile when you walk by and start randomly to  they are super friendly and a
+We knew that Helsinki is quite an open minded city when it comes to dogs. But it has been fantastic! People bring water to the dogs and most of the places they have own cups for the dogs. When you walk with the dog, people come to talk to you, smile when you walk by and start randomly to talk very cute things to your dog. People are super friendly and it feels great! 
+
+### Back to home
+
+We have been surprised how well she walks with the leash. Usually there is no problem at all. In some point, we will teach her taking more contact while walking but I bet it might be pretty easy because even now, she looks us every now and then while we walk.
+
+![](/images/20200719_211155.jpg)
+
+### Chilling out at home
+
+Since Deet has spent so much time in her crate, it feels incredibly good when she is chilling out with us and exploring everything.
+
+![](/images/20200719_215207.jpg)
+
+![](/images/20200719_224239.jpg)
+
+After the walks she is really likes to hung around with us. This evening we played with her, brushed her and just did our every day things. She was following us from room to another and she was curious what we were doing. Huge progress <3
+
+![](/images/20200719_220510.jpg)
