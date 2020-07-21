@@ -71,3 +71,5 @@ Since Deet has spent so much time in her crate, it feels incredibly good when sh
 After the walks she is really likes to hung around with us. This evening we played with her, brushed her and just did our every day things. She was following us from room to another and she was curious what we were doing. Huge progress <3
 
 ![](/images/20200719_220510.jpg)
+
+In the evening, she fell asleep besides us. ![](/images/20200719_224024.jpg)
