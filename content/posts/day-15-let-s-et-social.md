@@ -52,4 +52,4 @@ On our way home we stopped for a pint with our friend to a beer garden, near to 
 
 ### Helsinki - such a dog friendly city!
 
-We knew that Helsinki has quite many places to 
+We knew that Helsinki is quite an open minded city when it comes to dogs. But it has been fantastic! People bring water to the dogs and most of the places they have own cups for the dogs. When you walk with the dog, people come to talk to you, smile when you walk by and start randomly to  they are super friendly and a
