@@ -79,3 +79,5 @@ In the evening, after the long day, she fell asleep besides us .
 ![](/images/20200719_224024.jpg)
 
 ![](/images/20200719_230342.jpg)
+
+It's feels weird to think that this little friend was two weeks ago so afraid that she couldn't come out of her crate. Now, here we are chilling out at our living room.. Brave, damn brave Deet!
