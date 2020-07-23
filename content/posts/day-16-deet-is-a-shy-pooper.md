@@ -37,6 +37,8 @@ After lunch, we grabbed some iced-coffees to-go and sat with Deet and our friend
 
 Our friend left and we decided to take Deet on a long walk. Since one of us likes running, the idea was to show Deet one running path so she would be acquainted with it, and in the future maybe she would be able to run along (or at least jog for a short time). So this is what we did. It was a warm day, so we made sure to have frequent stops and keep Deet hydrated.
 
+![](/images/20200720_160347-0.jpg)
+
 We ended up at an outdoor café by the shore, where we saw several other people with Dogs. Deet behaved very well, being slow and polite when introducing herself to other dogs, and very calm overall. She still has this tendency of sitting a little too far from us when we choose a spot, to the point where we have to move places. We usually laugh it off and say she's a teenager and needs to show other dogs that she's cool.
 
 On the way back we noticed she got more and more tired. It might have been a little too long walk for her, so we carried her home where she promptly fell asleep. We made sure to keep a fan on her and some icy treats near her so she would refresh herself. She slept for some time.
