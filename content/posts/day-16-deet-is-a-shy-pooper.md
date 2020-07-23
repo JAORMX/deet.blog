@@ -41,6 +41,10 @@ Our friend left and we decided to take Deet on a long walk. Since one of us like
 
 We ended up at an outdoor café by the shore, where we saw several other people with Dogs. Deet behaved very well, being slow and polite when introducing herself to other dogs, and very calm overall. She still has this tendency of sitting a little too far from us when we choose a spot, to the point where we have to move places. We usually laugh it off and say she's a teenager and needs to show other dogs that she's cool.
 
+![](/images/20200720_172518.jpg)
+
+![](/images/20200720_173426.jpg)
+
 On the way back we noticed she got more and more tired. It might have been a little too long walk for her, so we carried her home where she promptly fell asleep. We made sure to keep a fan on her and some icy treats near her so she would refresh herself. She slept for some time.
 
 ![](/images/20200720_190407.jpg)
