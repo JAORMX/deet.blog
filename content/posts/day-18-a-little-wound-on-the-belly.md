@@ -31,7 +31,7 @@ Today Deet woke up earlier again! So we decided to go out. We did our basic walk
 
 {{< youtube Rcrhw1qLyY8>}}
 
-She is learning the order "Come" better and better. But still her name is a little weird thing to her. Tomorrow, we'll try another approach with that.
+{{< youtube 6IRHSgH6Zw0 >}}
 
 ![](/images/20200722_131020.jpg)
 
@@ -74,3 +74,9 @@ At home, Deet has found her place close to us. No crate anymore, now she feels s
 We are not watching a lot of tv and especially with Deet we haven't have any interest to open it so far. But today, while she was resting in the living room, we decided to check out how was she reacting. 
 
 For some minutes, she had this very intensive staring. Like she was processing what the heck the tv was. But after some while she fell as. Either the tv series were not her cup of tea or she got used to it :D
+
+{{< youtube 2AyKZCggPN0>}}
+
+This evening, as usual, Deet fell asleep in the living room and slept there whole night.
+
+![](/images/20200722_225323.jpg)
