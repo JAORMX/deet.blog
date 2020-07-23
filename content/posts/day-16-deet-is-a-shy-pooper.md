@@ -3,7 +3,6 @@ author = "mirkka and ozz"
 categories = []
 date = 2020-07-21T09:14:00Z
 description = ""
-draft = true
 title = "Day 16 - Deet is a shy pooper"
 type = "post"
 
@@ -45,13 +44,21 @@ We ended up at an outdoor café by the shore, where we saw several other people 
 
 ![](/images/20200720_173426.jpg)
 
+![](/images/img_20200720_173150.jpg)
+
 On the way back we noticed she got more and more tired. It might have been a little too long walk for her, so we carried her home where she promptly fell asleep. We made sure to keep a fan on her and some icy treats near her so she would refresh herself. She slept for some time.
 
 ![](/images/20200720_190407.jpg)
 
 Later that day, the same friend we met at the park joined us at home for some quesadillas. Deet was still very sleepy, but she didn't seem stressed. She just kept resting and we let her be. Later that day she decided to join and started walking around, curious about what we were doing. However, it is then that we noticed her "business walk", which she does just before she's about to relieve herself. We immediately took her outside for this.
 
-But nothing happened. She was interested in everything, walking around, running around, smelling everything; but no business to be done. She a couple of hours and still nothing. Our friend left, and we took Deet back up to the apartment, where she immediately started preparing herself for doing her business, so we took her out again.
+![](/images/20200720_225634.jpg)
+
+But nothing happened. She was interested in everything, walking around, running around, smelling everything; but no business to be done. We were outside for couple of hours and still nothing.
+
+![](/images/20200720_224016.jpg)
+
+ Our friend left, and we took Deet back up to the apartment, where she immediately started preparing herself for doing her business, so we took her out again.
 
 It seems that she's not comfortable doing her business outside. Which is understandable as she got used to doing it inside... After several tries (and quite late at night), she finally did it outside, which we celebrated. Not only because we want her to know it's a good thing to do her business outside, but because we could finally get back to sleep.
 
