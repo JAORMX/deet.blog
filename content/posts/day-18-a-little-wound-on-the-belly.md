@@ -27,7 +27,13 @@ Milestones
 
 It has been amazing to see that Deet is awake, really awake in the mornings now. Her look is brighter and she is ready for an action! Also, she is not sleeping in her crate anymore, she sleeps in the living room. She has basically abandoned the crate, now she is all the time with us in the house. It's fantastic!
 
+Today Deet woke up earlier again! So we decided to go out.
+
+![](/images/20200722_131020.jpg)
+
 But today we saw that the wound on her belly was red and had bled a little. It wasn't clear what it was, but after sharing thoughts and photos with others in our dear whatsapp group with other new adoption families, we started to think it might be from the stitches they put after the castration. During the first week we didn't see it, because she didn't come out or show her stomach to us. But when we saw it, it had a scar already. For some reason, the wound was open now.
+
+![](/images/20200722_141545.jpg)
 
 Deet was totally fine, the wound didn't bother her at all. The problem was more one specific owner who was worried like hell ( :D ). We booked the vet but because the first appointment was for the next day, we decided to try the Firstvet application.
 
@@ -40,5 +46,7 @@ To be honest, this appointment was more to relief the owner, not because of the 
 We decided to leave Deet alone for few hours. We have spent a lot of time with her now, and it's important to teach her to have some time on her own as well. 
 
 We came home after few hours and Deet was sleeping. Apparently, she had took few of her toys to the living room while we were gone. It melted our hearts. 
+
+![](/images/20200722_191424.jpg)
 
 ![](/images/20200722_191434.jpg)
