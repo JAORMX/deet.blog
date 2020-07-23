@@ -26,7 +26,7 @@ Deet has had amazing progress with her schedule. Now she is awake in the morning
 
 ## Deet having a grumpy day
 
-Somehow the day 15  was Deet's grumpy day. It was even hilarious in the end - she has never been as serious as she was today! What ever we did, she seemed to be little bit annoyed. She didn't smile during the whole day and it was weird.
+Somehow the day 17 was Deet's grumpy day. It was even hilarious in the end - she has never been as serious as she was today! What ever we did, she seemed to be little bit annoyed. She didn't smile during the whole day and it was weird.
 
 ![](/images/20200721_204403.jpg)
 
