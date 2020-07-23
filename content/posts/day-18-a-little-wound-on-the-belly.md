@@ -27,7 +27,11 @@ Milestones
 
 It has been amazing to see that Deet is awake, really awake in the mornings now. Her look is brighter and she is ready for an action! Also, she is not sleeping in her crate anymore, she sleeps in the living room. She has basically abandoned the crate, now she is all the time with us in the house. It's fantastic!
 
-Today Deet woke up earlier again! So we decided to go out.
+Today Deet woke up earlier again! So we decided to go out. We did our basic walk and stopped at the park to have a little training session in the end. Deet was still having a lot of energy and in her opinion, playing would have been much more fun than training.
+
+{{< youtube Rcrhw1qLyY8>}}
+
+She is learning the order "Come" better and better. But still her name is a little weird thing to her. Tomorrow, we'll try another approach with that.
 
 ![](/images/20200722_131020.jpg)
 
