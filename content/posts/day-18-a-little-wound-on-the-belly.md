@@ -16,12 +16,12 @@ Milestones
 
 * Deet was awake earlier again
 * We started the first training sessions
-* She was few hours alone at home and all went fine
+* She was a few hours alone at home and all went fine
 * She was playful
 * Deet was walking well in the leash!
-* Deet came out again when we called her at the front door
-* Trying to get her used to the elevator
-* We used Firstvet application for the first time and it was great!
+* Deet came out again when we called her at the front door.
+* Trying to get her used to the elevator.
+* We used the Firstvet application for the first time and it was great!
 
 ***
 
@@ -30,6 +30,8 @@ It has been amazing to see that Deet is awake, really awake in the mornings now.
 Today Deet woke up earlier again! So we decided to go out. We did our basic walk and stopped at the park to have a little training session in the end. Deet was still having a lot of energy and in her opinion, playing would have been much more fun than training.
 
 {{< youtube Rcrhw1qLyY8>}}
+
+{{< youtube 6IRHSgH6Zw0 >}}
 
 {{< youtube 6IRHSgH6Zw0 >}}
 
@@ -71,7 +73,7 @@ At home, Deet has found her place close to us. No crate anymore, now she feels s
 
 ![](/images/20200722_225314.jpg)
 
-We are not watching a lot of tv and especially with Deet we haven't have any interest to open it so far. But today, while she was resting in the living room, we decided to check out how was she reacting. 
+We are not watching a lot of tv and especially with Deet we haven't have any interest to open it so far. But today, while she was resting in the living room, we decided to check out how was she reacting.
 
 For some minutes, she had this very intensive staring. Like she was processing what the heck the tv was. But after some while she fell as. Either the tv series were not her cup of tea or she got used to it :D
 
