@@ -8,7 +8,7 @@ title = "Day 19 - The first visit to the vet "
 type = "post"
 
 +++
-Deet has started to get our schedule. She eats in the morning, we go for a walk and the time we spend at home, she is with us. In the afternoon she we had the first appointment at the vet and she was super brave. In the evening, her amazing personality made us laugh and during the night we slept horribly due to looking after her that she doesn't lick her wound.
+Deet has started to get our schedule. She eats in the morning, we go for a walk and the time we spend at home, she is with us. In the afternoon, we had the first appointment at the vet and she was super brave. In the evening, her amazing personality made us laugh while the training sessions. During the night we slept horribly due to looking after her that she doesn't lick her wound.
 
 Milestones:
 
@@ -38,7 +38,7 @@ We were quite sure Deet would be nervous at the appointment. Wrong again, we rea
 
 ![](/images/20200723_165251.jpg)
 
-It was a perfect moment to go to the vet: if the wound was clean day before now it was little bit infected. Apparently, some of the stitches of the castration didn't melt as they should have had and now the wound was little bit open. We got antibiotics and honey lotion. Otherwise she was totally healthy and fine. The vet told she is a bit skinny (even if her weight was 13,7kg?! :D) but it's normal for rescue dogs when they arrive.
+It was a perfect moment to go to the vet: if the wound was clean day before now it was little bit infected. Apparently, some of the stitches of the castration didn't melt as they should have had and now the wound was little bit open. We were told that this is common thing to happen and everything will be fine. We got antibiotics and honey lotion for Deet. Otherwise she was totally healthy and fine. The vet told she is a bit skinny (even if her weight was 13,7kg?! :D) but it's normal for rescue dogs when they arrive.
 
 All in all, everything went well. Now we just need to get the wound healed!
 
@@ -54,17 +54,17 @@ She gave us a good laugh. She loves sticks and branches and the best thing in th
 
 Training starts to pay off!
 
-We have started little by little to train Deet some basic things, like her name,  "sit", "come" and "down". And little by little it starts to pay off. 
+We have started little by little to train Deet some basic things, like her name,  "sit", "come" and "down". And little by little it starts to pay off.
 
 {{< youtube re0mUgYPECY >}}
 
 {{< youtube RDwnOCejodg >}}
 
-We waited for a while outside but when Deet didn't give any signs of doing her business, we decided to go inside. 
+We waited for a while outside but when Deet didn't give any signs of doing her business, we decided to go inside.
 
 ![](/images/20200723_175453.jpg)
 
-And... it took 2 minutes and there was a pond on our floor :D 
+And... it took 2 minutes and there was a pond on our floor :D
 
 ### Healing the wound
 
@@ -72,7 +72,7 @@ The wound was in worse condition than the day before, so it was perfect time to 
 
 ![](/images/20200723_183444.jpg)
 
-The vet told to put some old tricot shirt on Deet's hip so that she wouldn't lick the wound. 
+The vet told to put some old tricot shirt on Deet's hip so that she wouldn't lick the wound.
 
 We tried some options but they didn't work out. Deet got them off easily.
 
