@@ -4,7 +4,7 @@ categories = []
 date = 2020-07-24T07:05:00Z
 description = ""
 draft = true
-title = "Day 19 - First visit to the vet & normal doggy life"
+title = "Day 19 - The first visit to the vet "
 type = "post"
 
 +++
@@ -68,7 +68,11 @@ And... it took 2 minutes and there was a pond on our floor :D
 
 ### Healing the wound
 
-The wound was in worse condition than the day before, so it was perfect time to take her to the vet. The wound didn't really bother Deet before but today she had started to lick it every now and then, which was very bad! The vet told to put some old tricot shirt on Deet's hip so that she wouldn't lick the wound. 
+The wound was in worse condition than the day before, so it was perfect time to take her to the vet. The wound didn't really bother Deet before but today she had started to lick it every now and then, which was very bad! We cleaned the wound, gave her the medicine and add the honey lotion.
+
+![](/images/20200723_183444.jpg)
+
+The vet told to put some old tricot shirt on Deet's hip so that she wouldn't lick the wound. 
 
 We tried some options but they didn't work out. Deet got them off easily.
 
@@ -78,4 +82,4 @@ So in the end we decided to put one old T-shirt backwards. And that worked out. 
 
 ![](/images/20200723_234245.jpg)
 
-She looked so funny that we couldn't hold the laugh. But at the same time we were worried. It was hard to fall asleep, we both were just listening if she would try to get the shirt off. In the end all went fine and she slept the night very calmly.
+She looked so funny that we couldn't hold the laugh. But at the same time, we were worried that she would lick and scratch the wound during the night. It was hard to fall asleep, we both were just listening if she would try to get the shirt off. In the end all went fine and she slept the night very calmly.
