@@ -68,4 +68,14 @@ And... it took 2 minutes and there was a pond on our floor :D
 
 ### Healing the wound
 
-The wound was in worse condition than the day before, so it was perfect time to take her to the vet. The wound didn't really bother Deet before but today she had started to lick it every now and then, which was very bad! The vet told 
+The wound was in worse condition than the day before, so it was perfect time to take her to the vet. The wound didn't really bother Deet before but today she had started to lick it every now and then, which was very bad! The vet told to put some old tricot shirt on Deet's hip so that she wouldn't lick the wound. 
+
+We tried some options but they didn't work out. Deet got them off easily.
+
+![](/images/20200723_231525.jpg)
+
+So in the end we decided to put one old T-shirt backwards. And that worked out. Deet was very kind when we put it on and she decided to go to sleep after that.
+
+![](/images/20200723_234245.jpg)
+
+She looked so funny that we couldn't hold the laugh. But at the same time we were worried. It was hard to fall asleep, we both were just listening if she would try to get the shirt off. In the end all went fine and she slept the night very calmly.
