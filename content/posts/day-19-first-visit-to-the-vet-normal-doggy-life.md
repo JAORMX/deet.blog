@@ -59,3 +59,13 @@ We have started little by little to train Deet some basic things, like her name,
 {{< youtube re0mUgYPECY >}}
 
 {{< youtube RDwnOCejodg >}}
+
+We waited for a while outside but when Deet didn't give any signs of doing her business, we decided to go inside. 
+
+![](/images/20200723_175453.jpg)
+
+And... it took 2 minutes and there was a pond on our floor :D 
+
+### Healing the wound
+
+The wound was in worse condition than the day before, so it was perfect time to take her to the vet. The wound didn't really bother Deet before but today she had started to lick it every now and then, which was very bad! The vet told 
