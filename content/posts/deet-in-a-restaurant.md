@@ -8,7 +8,7 @@ title = "Deet in a restaurant"
 type = "post"
 
 +++
-Today supposed to be our wedding day but we postponed the evet because of the pandemics. Anyhow, we wanted to celebrate our "almost a wedding day" by going to a restaurant. What would have been better than doing that with the whole family. 
+Today supposed to be our wedding day but we postponed the evet because of the pandemics. Anyhow, we wanted to celebrate our "almost a wedding day" by going to a restaurant. What would have been better than doing that with the whole family.
 
 Milestones:
 
@@ -17,8 +17,10 @@ Milestones:
 * Deet was first time in a restaurant
 * She isn't scared of a thunder
 * She behaves very well with other dogs
-* She is playful and more and more familiar with us 
+* She is playful and more and more familiar with us
 
 ***
 
-This 
+This morning there was a thunder in Helsinki. Deet didn't really mind at all which was nice to see. Also, she is very used to music now. So we listened music a little while there was a bad weather and the thunder was not that loud.
+
+In the morning we went for a long walk and everyhting went well. Deet has met many dogs during our walks and it has been nice to realise how happy and playful she is with other dogs.
