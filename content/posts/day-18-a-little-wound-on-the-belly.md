@@ -32,8 +32,6 @@ Today Deet woke up earlier again! So we decided to go out. We did our basic walk
 
 {{< youtube 6IRHSgH6Zw0 >}}
 
-{{< youtube 6IRHSgH6Zw0 >}}
-
 ![](/images/20200722_131020.jpg)
 
 ### The wound on a belly
