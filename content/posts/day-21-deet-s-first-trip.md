@@ -14,6 +14,7 @@ Today we went to see doggy grandparents to the country side. It was Deet's first
 * She was calm in the car 
 * She was excited about Mirkka's parents and wasn't afraid with them
 * Deet explored the house immediately, ate, drank water and seemed very relaxed
+* She has learned to sit before we give the food in front of her
 
 ***
 
@@ -43,4 +44,8 @@ My dad came to pick us up from the train station. We had bought a safe belt for 
 
 When we arrived to their home, Deet was first exploring the yard. We gave a tip to my parents that they should not approach Deet before she had approched them. That makes it easier for Deet to gain courage to get to know them  when she is ready. This worked well and Deet started to be confident sooner than we could have imagined.
 
-Deet was surprisingly confident. She started to explore the house and she didn't look nervous at all. She was just curious and excited. It's unbelievable! If we look 2 weeks back, we went first time OUT! Now she was 
+Deet was surprisingly confident. She started to explore the house and she didn't look nervous at all. She was just curious and excited. It's unbelievable! If we look 2 weeks back, we went first time OUT! Now she was in a new environment, with new people and she was walking around without any signs of nervousness. No words, how brave this lady dog is!
+
+\*Deet exploring the house
+
+Also, good sign was that she was eating. She wouldn't have done that if she was't feeling ok. 
