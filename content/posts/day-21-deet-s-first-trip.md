@@ -15,6 +15,7 @@ Today we went to see doggy grandparents to the country side. It was Deet's first
 * She was excited about Mirkka's parents and wasn't afraid with them
 * Deet explored the house immediately, ate, drank water and seemed very relaxed
 * She has learned to sit before we give the food in front of her
+* The wound is getting better and better
 
 ***
 
@@ -48,4 +49,12 @@ Deet was surprisingly confident. She started to explore the house and she didn't
 
 \*Deet exploring the house
 
-Also, good sign was that she was eating. She wouldn't have done that if she was't feeling ok. 
+Also, good sign was that she was eating. She wouldn't have done that if she was't feeling ok. We have started to teach her to sit before we give her the food. It has started to work and today she sat almost immediately when we showed the plate with food.
+
+The only problem was that she didn't do her business. She peed inside (again…) but nothing else. 
+
+### Good night
+
+Deet found her spot from our room as soons as we arrived and left our stuff there. When we started to sleep, she came to sleep on the floor beside our bed. It felt pretty much like a perfect day!
+
+Tomorrow Deet will have her first forest trip! :) 
