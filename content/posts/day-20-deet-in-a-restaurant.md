@@ -25,15 +25,29 @@ This morning there was a thunder in Helsinki. Deet didn't really mind at all whi
 
 In the morning we went for a long walk and everything went well. Deet has met many dogs during our walks and it has been nice to realize how happy and playful she is with other dogs.
 
+{{< figure src="/images/day-20/20200724_123759.jpg" >}}
+
+One thing we haven't mentioned is that Deet is now comfortable and even
+willingly getting on elevators! This used to be very scary for her.
+
+{{< figure src="/images/day-20/20200724_133615.jpg" >}}
+
 After that, we took a little rest at home. We also cleaned the wound the second time of that day and fortunately, the medicine seemed help. We have crushed the tablets to Deet's food and she has eaten them easily.
 
 In the afternoon we started to get ready for a celebration dinner. We supposed to get married this day but because of the pandemic, the wedding was postponed. We wanted to do something to celebrate our "almost a  wedding day" and we wanted to do it with Deet. Also, it would have been irresponsible to leave her alone with her wound now. There is always a risk she still might lick it.
+
+{{< figure src="/images/day-20/20200724_170551.jpg" >}}
 
 A few days before, we called one of our favorite restaurants, Taqueria el Rey, and asked if the restaurant was dog friendly. Their answer was kind of cute; they said they love dogs more than anything and they are super welcome! Also, the waiter mentioned he has two dogs and he is a real fan of all kinds of doggies.
 
 So we had a table reservation, but before that, we took Deet for a long walk in order to make her a little tired so she would be calm at the restaurant. That makes it easier to go with her to public places when she is a little tired after some exercise.
 
+{{< figure src="/images/day-20/20200724_172658.jpg" >}}
+
 Deet was a little nervous to come inside but when we finally got inside we saw many smiling faces and people started immediately share their experiences about their dogs. We had a very good service at the restaurant too: When the waiter heard that Deet is a rescue dog and a little shy, he tried to give us a nice and peaceful corner so Deet would be more comfortable. Helsinki is a super dog friendly city!
+
+{{< figure src="/images/day-20/IMG_20200724_180217.jpg" >}}
+{{< figure src="/images/day-20/IMG_20200724_181258.jpg" >}}
 
 It was great to celebrate this big day with all of us. And it was nice to see that even if Deet was a little bit nervous about the new situation, in the end, she was resting and almost sleeping beside us while we ate.
 
