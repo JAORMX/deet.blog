@@ -19,4 +19,12 @@ Today we went to see doggy grandparents to the country side. It was Deet's first
 
 \* Photo: Deet at the railwaystation
 
-Time to go! We 
+Time to go! We took an afternoon train so that were able to take Deet for a long walk in the morning and get her tired before the trip. Also, we hoped there wouldn't be so much people on the Saturday afternoon. We wanted to be careful with corona virus but also it would be easier first trip to Deet if the train wasn't full. Our plan worked and we were very lucky - only few people in the same car. 
+
+First, Deet was observing like always. She was sitting on the lap and she was very calm. After 5-10 minutes, she got very curios.
+
+< youtube >
+
+In few minutes she started to calm down and she was sitting on a chair like a proper traveller
+
+photo: deet on a train
