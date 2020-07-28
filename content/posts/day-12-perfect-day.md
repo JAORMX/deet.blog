@@ -1,6 +1,6 @@
 +++
 author = "mirkka and ozz"
-categories = []
+categories = ["Dog", "Deet"]
 date = 2020-07-15T18:33:00Z
 description = ""
 title = "Day 12 -  Things start to fall into place"

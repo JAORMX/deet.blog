@@ -1,6 +1,6 @@
 +++
 author = "mirkka and ozz"
-categories = []
+categories = ["Dog", "Deet"]
 date = 2020-07-24T07:05:00Z
 description = ""
 title = "Day 19 - The first visit to the vet "

@@ -1,6 +1,6 @@
 +++
 author = "mirkka and ozz"
-categories = []
+categories = ["Dog", "Deet"]
 date = 2020-07-12T07:10:00Z
 description = ""
 title = "Day 8 -  Deet warms up to us"

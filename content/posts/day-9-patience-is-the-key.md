@@ -1,6 +1,6 @@
 +++
 author = "mirkka and ozz"
-categories = []
+categories = ["Dog", "Deet"]
 date = 2020-07-13T08:16:00Z
 description = ""
 title = "Day 9 - Patience is the key"

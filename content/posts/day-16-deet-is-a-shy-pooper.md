@@ -1,6 +1,6 @@
 +++
 author = "mirkka and ozz"
-categories = []
+categories = ["Dog", "Deet"]
 date = 2020-07-21T09:14:00Z
 description = ""
 title = "Day 16 - Deet is a shy pooper"

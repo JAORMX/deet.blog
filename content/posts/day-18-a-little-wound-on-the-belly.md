@@ -1,6 +1,6 @@
 +++
 author = "mirkka and ozz"
-categories = []
+categories = ["Dog", "Deet"]
 date = 2020-07-23T10:30:00Z
 description = ""
 title = "Day 18 - A little wound on the belly"

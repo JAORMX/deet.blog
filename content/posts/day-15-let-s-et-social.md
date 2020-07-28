@@ -1,6 +1,6 @@
 +++
 author = "mirkka and ozz"
-categories = []
+categories = ["Dog", "Deet"]
 date = 2020-07-21T08:03:00Z
 description = ""
 title = "Day 15 - Let's get social!"

@@ -1,6 +1,6 @@
 +++
 author = "mirkka and ozz"
-categories = []
+categories = ["Dog", "Deet"]
 date = 2020-07-18T09:02:00Z
 description = ""
 title = "Day 14 - The attack of the ticks!"

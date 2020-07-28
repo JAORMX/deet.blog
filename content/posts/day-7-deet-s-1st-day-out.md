@@ -1,6 +1,6 @@
 +++
 author = "mirkka and ozz"
-categories = []
+categories = ["Dog", "Deet"]
 date = 2020-07-10T05:19:00Z
 description = "Deet's first day out"
 title = "Day 7 - Deet's 1st day out"

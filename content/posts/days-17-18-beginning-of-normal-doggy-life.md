@@ -1,6 +1,6 @@
 +++
 author = "mirkka and ozz"
-categories = []
+categories = ["Dog", "Deet"]
 date = 2020-07-23T09:18:00Z
 description = ""
 title = "Days 17- The beginning of a normal doggy life"
