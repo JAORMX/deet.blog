@@ -3,7 +3,6 @@ author = "mirkka and ozz"
 categories = []
 date = 2020-07-26T19:46:00Z
 description = ""
-draft = true
 title = "Day 20 - Deet in a restaurant"
 type = "post"
 
@@ -14,6 +13,7 @@ Milestones:
 
 * The wound looked better.
 * Deet is still having a better schedule.
+* Her eating schedule has found a place. 
 * Deet was in a restaurant for the first time.
 * She isn't scared of thunder.
 * She behaves very well with other dogs.
@@ -43,6 +43,8 @@ A few days before, we called one of our favorite restaurants, Taqueria el Rey, a
 So we had a table reservation, but before that, we took Deet for a long walk in order to make her a little tired so she would be calm at the restaurant. That makes it easier to go with her to public places when she is a little tired after some exercise.
 
 {{< figure src="/images/day-20/20200724_172658.jpg" >}}
+
+{{< youtube=cREdeppZmnc >}}
 
 Deet was a little nervous to come inside but when we finally got inside we saw many smiling faces and people started immediately share their experiences about their dogs. We had a very good service at the restaurant too: When the waiter heard that Deet is a rescue dog and a little shy, he tried to give us a nice and peaceful corner so Deet would be more comfortable. Helsinki is a super dog friendly city!
 
