@@ -1,7 +1,7 @@
 +++
 author = "mirkka and ozz"
 categories = []
-date = 2020-07-27T19:39:00Z
+date = 2020-07-26T21:00:00Z
 description = ""
 draft = true
 title = "Day 21 - Deet's first trip"
@@ -59,4 +59,4 @@ The only problem was that she didn't do her business. She peed inside (again…)
 
 Deet found her spot from our room as soons as we arrived and left our stuff there. When we started to sleep, she came to sleep on the floor beside our bed. It felt pretty much like a perfect day!
 
-Tomorrow Deet will have her first forest trip! :) 
+Tomorrow Deet will have her first forest trip! :)
