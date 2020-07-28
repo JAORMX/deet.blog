@@ -44,7 +44,7 @@ So we had a table reservation, but before that, we took Deet for a long walk in 
 
 {{< figure src="/images/day-20/20200724_172658.jpg" >}}
 
-{{< youtube=cREdeppZmnc >}}
+{{< youtube cREdeppZmnc >}}
 
 Deet was a little nervous to come inside but when we finally got inside we saw many smiling faces and people started immediately share their experiences about their dogs. We had a very good service at the restaurant too: When the waiter heard that Deet is a rescue dog and a little shy, he tried to give us a nice and peaceful corner so Deet would be more comfortable. Helsinki is a super dog friendly city!
 
