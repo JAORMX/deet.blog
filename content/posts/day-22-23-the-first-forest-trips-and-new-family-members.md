@@ -4,7 +4,7 @@ categories = ["Dog", "Deet"]
 date = 2020-07-27T21:00:00Z
 description = ""
 draft = true
-title = "Day 22-23 - The first forest trips and new family members"
+title = "Day 22-24 - The first forest trips and new family members"
 type = "post"
 
 +++
@@ -16,6 +16,16 @@ Milestones:
 * She likes sniffing plants and flowers.
 * She walked beside us the whole time.
 * When wanting her own time, she does so fairly near us.
+* Deet has been brave and made friends with other family members.
+* She plays with my (Mirkka's) parents and let them pet her.
+* Deet comes always to sleep besides us in our room and she is super excited about us when we wake up
+* Her schedule is now normal. She wakes up arounf 7-8 am!
+* She is a perfect berry picking dog; she always stays beside us, lays down while we pick berries and usually starts to bite some branches besides us. We all have something to do.
+* She has started to recognise the family: if we leave, she starts to follow or gets worried if we are in a sauna and she stays with my parents. Fortunately she's ok in few minutes.
+* She poops and finally did her first pee outside :D 
+* Eating schedule is working and she has learned to sit before getting the food.
+* She's used to being in the car nowadays with her doggy seatbelt on.
+* We are super happy with this little one <3
 
 ***
 
