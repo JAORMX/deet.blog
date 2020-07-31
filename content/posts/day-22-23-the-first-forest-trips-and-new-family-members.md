@@ -8,7 +8,7 @@ title = "Day 22-24 - The first forest trips and new family members"
 type = "post"
 
 +++
-We are very into outdoor activities and we really would like Deet to join us. To our surprise, Deet is a fantastic outdoor dog and seems to enjoy nature a lot.
+We are very into outdoor activities and we really would like Deet to join us. To our surprise, Deet is a fantastic outdoor dog and seems to enjoy nature a lot. This is a summary of all the long weekend we had at Mirkka's parents place and how amazingly this little "shy" dog was there.
 
 ![](/images/20200726_132509.jpg)
 
@@ -62,6 +62,8 @@ We had a lovely day at the forest and it felt like Deet had always been part of 
 
 ![](/images/20200727_131000.jpg)
 
+![](/images/img_20200727_130824.jpg)
+
 After four days she went already for a walk with my parents, without us. She walked well almost all the time. Only in one point near to the home she stopped to look back and she was little bit confused why we didn't join for the walk. But treats helped :D
 
 Also, huge thanks for the amazing doggy grandparents my parents have been for her. They gave a very warm welcome to our new family member <3
@@ -97,11 +99,19 @@ Deet's new hairstyle (Yes, she has eyes!)
 
 ![](/images/20200729_101055.jpg)
 
+Basic evening chilling out all us together. 
+
+![](/images/20200729_190036.jpg)
+
 The good thing is that even if she really likes our company now, she still knows how to take her own me time and takes long naps during the day.
+
+Btw! Deet knows now a cool thing when she gets her food.
+
+{{< youtube eAaf9uVp6xk >}}
 
 ### Back home - sleeping in the train & pooping in the mall
 
-Deet has been very calm also when we travel. She sits or sleeps in the car and again, she slept almost the whole train trip. 
+Deet has been very calm also when we travel. She sits or sleeps in the car and again, she slept almost the whole train trip.
 
 ![](/images/20200730_132723.jpg)
 
