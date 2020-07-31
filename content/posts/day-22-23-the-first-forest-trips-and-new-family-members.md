@@ -40,6 +40,8 @@ Once we were there, she was very calm and seemed very interested too. She starte
 
 ![](/images/20200726_132826.jpg)
 
+![](/images/20200726_131317.jpg)
+
 A very nice thing is that she always stays close to us and mostly walks on the visible trails (as we do). However, when it comes to picking berries and the times where we have to go into bushes, she follows. When we would stop to pick berries, she would chill out and lay down near us.
 
 ![](/images/img_20200727_124644.jpg)![](/images/img_20200729_111300.jpg)
@@ -76,9 +78,14 @@ Deet likes biting stuff and she is also very active. So we need to find her fun 
 
 ![](/images/20200726_163007-1.jpg)
 
-One big family
+### One big family
 
-In the beginning, Deet didn't really care about our company. She had he me time all day long and didn't really care if we were with her or not. Now, she starts to be the opposite. 
+In the beginning, Deet didn't really care about our company. She had he me time all day long and didn't really care if we were with her or not. Now, she starts to be the opposite. Where ever we are, she will be there.
+
+![](/images/20200729_191429.jpg)![](/images/20200728_213201.jpg)
+
+Deet picking rasberries with us:  
+![](/images/20200729_162836.jpg)
 
 ### Back home - sleeping in the train & pooping in the mall
 
