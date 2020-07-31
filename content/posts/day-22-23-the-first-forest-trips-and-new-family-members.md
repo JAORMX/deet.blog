@@ -32,14 +32,14 @@ Milestones:
 
 While hanging out at Mirkka's parent's place in the countryside, we have done some trips to the forest with Deet. We were very surprised at how calm and interested she has been on these trips, and are very excited that we'll be able to do more outdoor activities in the future.
 
-![](/images/20200726_132826.jpg)
-
 The first quick trip we did was to a local forest to do some berry picking. While Deet wasn't too keen on getting on the car, she is quite calm when it comes to the car trip itself.
+
+![](/images/20200729_161125.jpg)
 
  Once we were there, she was very calm and seemed very interested too. She started sniffing around the area but stayed close to us.
 
-A very nice thing is that she always stays close to us and mostly walks on the visible trails (as we do). However, when it comes to picking berries and the times where we have to go into bushes, she follows. When we would stop to pick berries, she would chill out and lay down near us.
+A very nice thin![](/images/20200726_132826.jpg)g is that she always stays close to us and mostly walks on the visible trails (as we do). However, when it comes to picking berries and the times where we have to go into bushes, she follows. When we would stop to pick berries, she would chill out and lay down near us.
 
-![](/images/img_20200727_124644.jpg)
+![](/images/img_20200727_124644.jpg)![](/images/img_20200729_111300.jpg)
 
 We've tried giving Deet some berries to smell, but she didn't seem too interested in that. She sure was interested, however, in chewing branches and grass. Sometimes we joke that Deet is our little sheep.
