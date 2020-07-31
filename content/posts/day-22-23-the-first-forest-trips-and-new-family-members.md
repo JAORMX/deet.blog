@@ -64,6 +64,8 @@ We had a lovely day at the forest and it felt like Deet had always been part of 
 
 After four days she went already for a walk with my parents, without us. She walked well almost all the time. Only in one point near to the home she stopped to look back and she was little bit confused why we didn't join for the walk. But treats helped :D
 
+Also, huge thanks for the amazing doggy grandparents my parents have been for her. They gave a very warm welcome to our new family member <3
+
 ### Deet doggying around
 
 Now when Deet has started to get more energy and she has become braver, she has started to do somme little trick behind our back. That has been amazing to see, because it basically tells us that she feels comfortable. Of course, at the same time, it means, we need to be more and more aware what is she doing :D Every now and then, we found her eating our socks in the living room, biting a tape roll, trying to eat curtains or breaking the newspapers she found.
@@ -84,8 +86,18 @@ In the beginning, Deet didn't really care about our company. She had he me time 
 
 ![](/images/20200729_191429.jpg)![](/images/20200728_213201.jpg)
 
-Deet picking rasberries with us:  
+Deet picking raspberries with us:  
 ![](/images/20200729_162836.jpg)
+
+Deet taking a nap at the grannies place:
+
+![](/images/20200727_160910.jpg)
+
+Deet's new hairstyle (Yes, she has eyes!)
+
+![](/images/20200729_101055.jpg)
+
+The good thing is that even if she really likes our company now, she still knows how to take her own me time and takes long naps during the day.
 
 ### Back home - sleeping in the train & pooping in the mall
 
