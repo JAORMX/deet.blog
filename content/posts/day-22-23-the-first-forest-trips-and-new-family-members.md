@@ -3,7 +3,7 @@ author = "mirkka and ozz"
 categories = ["Dog", "Deet"]
 date = 2020-07-27T21:00:00Z
 description = ""
-title = "Day 22-24 - The first forest trips and new family members"
+title = "Days 22-30 - The first forest trips and new family members"
 type = "post"
 
 +++
