@@ -10,6 +10,8 @@ type = "post"
 +++
 We are very into outdoor activities and we really would like Deet to join us. To our surprise, Deet is a fantastic outdoor dog and seems to enjoy nature a lot.
 
+![](/images/20200726_132509.jpg)
+
 Milestones:
 
 * Deet loves being outdoors.
@@ -22,10 +24,9 @@ Milestones:
 * Her schedule is now normal. She wakes up arounf 7-8 am!
 * She is a perfect berry picking dog; she always stays beside us, lays down while we pick berries and usually starts to bite some branches besides us. We all have something to do.
 * She has started to recognise the family: if we leave, she starts to follow or gets worried if we are in a sauna and she stays with my parents. Fortunately she's ok in few minutes.
-* She poops and finally did her first pee outside :D 
+* She poops and finally did her first pee outside :D
 * Eating schedule is working and she has learned to sit before getting the food.
 * She's used to being in the car nowadays with her doggy seatbelt on.
-* We are super happy with this little one <3
 
 ***
 
