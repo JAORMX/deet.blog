@@ -3,12 +3,11 @@ author = "mirkka and ozz"
 categories = ["Dog", "Deet"]
 date = 2020-07-27T21:00:00Z
 description = ""
-draft = true
 title = "Day 22-24 - The first forest trips and new family members"
 type = "post"
 
 +++
-We are very into outdoor activities and we really would like Deet to join us. To our surprise, Deet is a fantastic outdoor dog and seems to enjoy nature a lot. This is a summary of all the long weekend we had at Mirkka's parents place and how amazingly this little "shy" dog was there.
+We are very into outdoor activities and we really would like Deet to join us. To our surprise, Deet is a fantastic outdoor dog and seems to enjoy nature a lot. This is a summary of all the long weekend we had at Mirkka's parent's place and how amazing this little "shy" dog was there.
 
 ![](/images/20200726_132509.jpg)
 
@@ -19,11 +18,11 @@ Milestones:
 * She walked beside us the whole time.
 * When wanting her own time, she does so fairly near us.
 * Deet has been brave and made friends with other family members.
-* She plays with my (Mirkka's) parents and let them pet her.
-* Deet comes always to sleep besides us in our room and she is super excited about us when we wake up
-* Her schedule is now normal. She wakes up arounf 7-8 am!
-* She is a perfect berry picking dog; she always stays beside us, lays down while we pick berries and usually starts to bite some branches besides us. We all have something to do.
-* She has started to recognise the family: if we leave, she starts to follow or gets worried if we are in a sauna and she stays with my parents. Fortunately she's ok in few minutes.
+* She plays with my (Mirkka's) parents and lets them pet her.
+* Deet comes always to sleep beside us in our room and she is super excited about us when we wake up.
+* Her schedule is now normal. She wakes up around 7-8 am!
+* She is a perfect berry picking dog; she always stays beside us, lays down while we pick berries, and usually starts to bite some branches beside us. We all have something to do.
+* She has started to recognize the family: if we leave, she starts to follow or gets worried if we are in a sauna and she stays with my parents. Fortunately she's ok in few minutes.
 * She poops and finally did her first pee outside :D
 * Eating schedule is working and she has learned to sit before getting the food.
 * She's used to being in the car nowadays with her doggy seatbelt on.
@@ -52,9 +51,9 @@ We've tried giving Deet some berries to smell, but she didn't seem too intereste
 
 ### Deet and the family
 
-To our surprise Deet wasn't very afraid of the other family members. First day she didn't let people to pet her, but she was with everyone all the time, slept in the middle of the living room while people pass by and she seemed very relaxed. Next day with the family, she let people to touch her already and at the granny's place she approach immediately the granny.
+To our surprise, Deet wasn't very afraid of the other family members. The first day she didn't let people pet her, but she was with everyone all the time, slept in the middle of the living room while people pass by and she seemed very relaxed. The next day with the family, she let people touch her already, and at the granny's place she approach immediately the granny.
 
-We had a lovely day at the forest and it felt like Deet had always been part of the family.
+We had a lovely day in the forest and it felt like Deet had always been part of the family.
 
 ![](/images/20200727_131106.jpg)
 
@@ -64,13 +63,13 @@ We had a lovely day at the forest and it felt like Deet had always been part of 
 
 ![](/images/img_20200727_130824.jpg)
 
-After four days she went already for a walk with my parents, without us. She walked well almost all the time. Only in one point near to the home she stopped to look back and she was little bit confused why we didn't join for the walk. But treats helped :D
+After four days she went already for a walk with my parents, without us. She walked well almost all the time. Only at one point near to the home, she stopped to look back and she was a little bit confused about why we didn't join for the walk. But treats helped :D
 
 Also, huge thanks for the amazing doggy grandparents my parents have been for her. They gave a very warm welcome to our new family member <3
 
-### Deet doggying around
+### Deet "doggying" around
 
-Now when Deet has started to get more energy and she has become braver, she has started to do somme little trick behind our back. That has been amazing to see, because it basically tells us that she feels comfortable. Of course, at the same time, it means, we need to be more and more aware what is she doing :D Every now and then, we found her eating our socks in the living room, biting a tape roll, trying to eat curtains or breaking the newspapers she found.
+Now when Deet has started to get more energy and she has become braver, she has started to do some little tricks behind our back. That has been amazing to see because it basically tells us that she feels comfortable. Of course, at the same time, it means, we need to be more and more aware what is she doing :D Every now and then, we found her eating our socks in the living room, biting a tape roll, trying to eat curtains or breaking the newspapers she found.
 
 ![](/images/20200726_204952-1.jpg)
 
@@ -84,7 +83,7 @@ Deet likes biting stuff and she is also very active. So we need to find her fun 
 
 ### One big family
 
-In the beginning, Deet didn't really care about our company. She had he me time all day long and didn't really care if we were with her or not. Now, she starts to be the opposite. Where ever we are, she will be there.
+In the beginning, Deet didn't really care about our company. She had me-time all day long and didn't really care if we were with her or not. Now, she starts to be the opposite. Where ever we are, she will be there.
 
 ![](/images/20200729_191429.jpg)![](/images/20200728_213201.jpg)
 
@@ -99,13 +98,13 @@ Deet's new hairstyle (Yes, she has eyes!)
 
 ![](/images/20200729_101055.jpg)
 
-Basic evening chilling out all us together. 
+A basic evening chilling out all us together.
 
 ![](/images/20200729_190036.jpg)
 
-The good thing is that even if she really likes our company now, she still knows how to take her own me time and takes long naps during the day.
+The good thing is that even if she really likes our company now, she still knows how to take her own me-time and takes long naps during the day.
 
-Btw! Deet knows now a cool thing when she gets her food.
+By the way! Deet knows now a cool thing when she gets her food.
 
 {{< youtube eAaf9uVp6xk >}}
 
@@ -115,13 +114,13 @@ Deet has been very calm also when we travel. She sits or sleeps in the car and a
 
 ![](/images/20200730_132723.jpg)
 
-Even if the trip went well, Deet gave a nice surprise in the Tripla mall where the train arrived. Out of nowhere she decided to poop in the middle the mall. Not the proudest moments as a dog owner I must say...
+Even if the trip went well, Deet gave a nice surprise in the Tripla mall where the train arrived. Out of nowhere, she decided to poop in the middle of the mall. Not the proudest moments as a dog owner I must say...
 
 ### Amazing milestones in one month!
 
 If you have read the blog posts from the beginning, you might slightly remember the little shy dog in a crate? We hardly do anymore :D Deet has gained amazing courage and every day we can basically sit and wonder how brave she is.
 
-We still have a huge problem with potty training - she still pees inside and it's tricky to try to get rid of that habit. Even if we take her out several times a day, we have taken the doggy diapers out, done "boring" walks so that she would just do her business, she still holds it until she gets inside and does it on the floor.. Still lot to do with this!
+We still have a huge problem with potty training - she still pees inside and it's tricky to try to get rid of that habit. Even if we take her out several times a day, we have taken the doggy diapers out, done "boring" walks so that she would just do her business, she still holds it until she gets inside and does it on the floor... We still have a lot to do about this!
 
 But, I am sure we'll find the way :)
 
