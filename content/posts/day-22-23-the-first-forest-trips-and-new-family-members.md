@@ -36,7 +36,7 @@ The first quick trip we did was to a local forest to do some berry picking. Whil
 
 ![](/images/20200729_161125.jpg)
 
-Once we were there, she was very calm and seemed very interested too. She started sniffing around the area but stayed close to us. 
+Once we were there, she was very calm and seemed very interested too. She started sniffing around the area but stayed close to us.
 
 ![](/images/20200726_132826.jpg)
 
@@ -50,7 +50,7 @@ We've tried giving Deet some berries to smell, but she didn't seem too intereste
 
 ### Deet and the family
 
-To our surprise Deet wasn't very afraid of the other family members. First day she didn't let people to pet her, but she was with everyone all the time, slept in the middle of the living room while people pass by and she seemed very relaxed. Next day with the family, she let people to touch her already and at the granny's place she approach immediately the granny. 
+To our surprise Deet wasn't very afraid of the other family members. First day she didn't let people to pet her, but she was with everyone all the time, slept in the middle of the living room while people pass by and she seemed very relaxed. Next day with the family, she let people to touch her already and at the granny's place she approach immediately the granny.
 
 We had a lovely day at the forest and it felt like Deet had always been part of the family.
 
@@ -72,6 +72,28 @@ Also, one morning we woke up and saw how she had taken our clothes from the open
 
 ![](/images/20200728_085127.jpg)
 
-She seemed to like newspapers so we did an activation toy by putting some newspapers on the box and she needed to find treats there. Cheap and easy!
+Deet likes biting stuff and she is also very active. So we need to find her fun activities during the day. She seemed to like newspapers so we did an activation toy by putting some newspapers on the box and she needed to find treats there. Cheap and easy!
 
 ![](/images/20200726_163007-1.jpg)
+
+One big family
+
+In the beginning, Deet didn't really care about our company. She had he me time all day long and didn't really care if we were with her or not. Now, she starts to be the opposite. 
+
+### Back home - sleeping in the train & pooping in the mall
+
+Deet has been very calm also when we travel. She sits or sleeps in the car and again, she slept almost the whole train trip. 
+
+![](/images/20200730_132723.jpg)
+
+Even if the trip went well, Deet gave a nice surprise in the Tripla mall where the train arrived. Out of nowhere she decided to poop in the middle the mall. Not the proudest moments as a dog owner I must say...
+
+### Amazing milestones in one month!
+
+If you have read the blog posts from the beginning, you might slightly remember the little shy dog in a crate? We hardly do anymore :D Deet has gained amazing courage and every day we can basically sit and wonder how brave she is.
+
+We still have a huge problem with potty training - she still pees inside and it's tricky to try to get rid of that habit. Even if we take her out several times a day, we have taken the doggy diapers out, done "boring" walks so that she would just do her business, she still holds it until she gets inside and does it on the floor.. Still lot to do with this!
+
+But, I am sure we'll find the way :)
+
+![](/images/img_20200727_211226.jpg)
