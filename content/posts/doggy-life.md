@@ -39,8 +39,38 @@ The potty training happened more like and accident. Deet learned to do the big b
 
 After a month staying with us, one day, very suddenly Deet realised we have a sofa. And she loved it! Since that, she has done everything on it and she has became a real couch potato.
 
-![](/images/20200817_174255.jpg)
+![](/images/deet-the-sofa-potato.png)
+
+![](/images/20200821_223845.jpg)
+
+And that has been fun! It was just funny how long it took for her to find out the sofa. 
+
+Water monster
+
+When we took Deet near to the water first time, she wasn't interested in at all. She smelled the water ones and went away. In August, we took her to a dog park where she was able to swim at the dog's park and it was a success. 
+
+Suddenly she jumped on the water and she was happier than ever. 
+
+{{< youtube= "" >}}
+
+![](/images/20200809_152516.jpg)
+
+![](/images/20200809_160144.jpg)
 
 ## Training lessons
 
 We had taught Deet some basic commands at home and she seemed to learn well and she enjoyed the training sessions. We decided to join to one everyday basic training course and so far everything has went well. Deet likes to go there, she is very excited and she also learn fast. The best thing is to spend time together and have a fun hobby to share.
+
+## Deet with other dogs
+
+So far Deet has become a long very well with other dogs. Sometimes, she is afraid the big dogs at the dog parks for example. She always would like to start to play with the dogs, she smells a little and in few seconds she already bends to the playing positions and asked the other dog to join. Few times, she has started to play with a big dog but in some point the game gets to harsh in her opinion and she ran behind us and wails.
+
+This week we met at the dog park with our new friend who also got the a dog from Kulkurit and we got to know each other trough the process. 
+
+Deet met also some other little dogs at the park and they had very good time. First Deet is excited but shy to join other dogs games like you can see from this video:
+
+{{< youtube= "BLGzPlIUq4w" >}}
+
+But in the end, she gained courage and had a good time.
+
+{{< youtube= "BnWBmTSxYjU" >}}
