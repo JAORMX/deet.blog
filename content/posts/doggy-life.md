@@ -119,6 +119,8 @@ She is a brave traveller
 
 ![](/images/20200814_153655.jpg)
 
-She is a forest dog
+She loves forest
 
 ![](/images/20200815_142450.jpg)
+
+But at the same time she has began 
