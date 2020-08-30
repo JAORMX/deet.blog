@@ -95,4 +95,30 @@ Sometimes even veeery close
 
 ![](/images/20200814_090657.jpg)![](/images/20200809_172454.jpg)![](/images/20200813_183824.jpg)![](/images/20200813_175208.jpg)![](/images/20200828_094901.jpg)
 
-## Deet's personality 
+## Deet is a clever dog
+
+During this 2 months we have realised that Deet is very talented when it comes to take her own time and to estimate if something is too suspicious to her. For example, even if she spends a lot of time with us and she has gotten braver and braver all the time, she is not a dog that would run to the corridor to say hello to some visitor. She will observe the situation with her own time and space and when she is ready, she'll come to sniff and say hi to people. 
+
+She is still shy with other people. She approaches them more and more but it's not easy to gain the trust to pet her yet. She will move away when the hand is getting closer. 
+
+With us, she has used to almost everything and we can see every day her real temper and personality. 
+
+She knows how to chill out
+
+![](/images/20200819_120802.jpg)
+
+Or she can have craaaazy puppy energy and play for hours
+
+![](/images/20200819_202244.jpg)
+
+She can have lazy hours
+
+![](/images/20200814_133229.jpg)
+
+She is a brave traveller
+
+![](/images/20200814_153655.jpg)
+
+She is a forest dog
+
+![](/images/20200815_142450.jpg)
