@@ -123,4 +123,4 @@ She loves forest
 
 ![](/images/20200815_142450.jpg)
 
-But at the same time she has began 
+But at the same time she has began to be a city dog
