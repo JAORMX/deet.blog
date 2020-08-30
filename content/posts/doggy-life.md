@@ -24,7 +24,7 @@ Milestones:
 * She has gotten excited about water; she gets crazy energy after shower or swimming
 * Everyday things work well: eating, sleeping, playing, daily walks etc.
 * We bought a dog camera and it seems like she behaves very well if we are gone.
-* It feels like Deet feels safe enough to show her real personality. And it's awesome.![](/images/20200821_223845.jpg)
+* It feels like Deet feels safe enough to show her real personality. And it's awesome.
 
 ## Everyday life works
 
@@ -45,7 +45,7 @@ After a month staying with us, one day, very suddenly Deet realised we have a so
 
 And that has been fun! It was just funny how long it took for her to find out the sofa. 
 
-Water monster
+## Water monster
 
 When we took Deet near to the water first time, she wasn't interested in at all. She smelled the water ones and went away. In August, we took her to a dog park where she was able to swim at the dog's park and it was a success. 
 
@@ -74,3 +74,9 @@ Deet met also some other little dogs at the park and they had very good time. Fi
 But in the end, she gained courage and had a good time.
 
 {{< youtube= "BnWBmTSxYjU" >}}
+
+## Challenges: Chewing and ear drops
+
+As we saw it from the very beginning, Deet likes to bite stuff. Carpets, pillows, socks she finds from the floor, etc etc. Leash biting has gotten little bit better and now the next challenges has been our carpet we put the first time in the living room since Deet has arrived. We got a tip to put some chili on it and it worked. After that Deet got very confused what happened to the carpet :D
+
+{{< youtube= "" >}}
