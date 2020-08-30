@@ -61,6 +61,8 @@ Suddenly she jumped on the water and she was happier than ever.
 
 We had taught Deet some basic commands at home and she seemed to learn well and she enjoyed the training sessions. We decided to join to one everyday basic training course and so far everything has went well. Deet likes to go there, she is very excited and she also learn fast. The best thing is to spend time together and have a fun hobby to share.
 
+![](/images/20200817_185303.jpg)
+
 ## Deet with other dogs
 
 So far Deet has become a long very well with other dogs. Sometimes, she is afraid the big dogs at the dog parks for example. She always would like to start to play with the dogs, she smells a little and in few seconds she already bends to the playing positions and asked the other dog to join. Few times, she has started to play with a big dog but in some point the game gets to harsh in her opinion and she ran behind us and wails.
@@ -84,3 +86,13 @@ As we saw it from the very beginning, Deet likes to bite stuff. Carpets, pillows
 Other challenges has been now with ear drops. Deet got a yeast infection to her ears and it has been tricky to a) clean the ears b) add the medicine drops. We decided that we'll take our sweet time with this project because it's important to clean the ears every now and then and Deet needs to get to used to it. So we started little by little, we added some cleaning liquid to cotton and just started to touch her head and ears. Everytime it worked, we gave her treats and lot of applauses.
 
 First day was basically like that and on the next day I was already able to start to clean the ears inside with the cotton. So tiny steps! We don't want this to be horrible experience to Deet. 
+
+## Life is good
+
+It's been soon 2 months since Deet arrived. She has brought us so much happiness and every day we wonder how brave and amazing dog she is. Nowadays she follows us everywhere at home, if we change the room for 2 mins, she will follow. 
+
+Sometimes even veeery close 
+
+![](/images/20200814_090657.jpg)![](/images/20200809_172454.jpg)![](/images/20200813_183824.jpg)![](/images/20200813_175208.jpg)![](/images/20200828_094901.jpg)
+
+## Deet's personality 
