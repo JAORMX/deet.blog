@@ -79,6 +79,8 @@ But in the end, she gained courage and had a good time.
 
 As we saw it from the very beginning, Deet likes to bite stuff. Carpets, pillows, socks she finds from the floor, etc etc. Leash biting has gotten little bit better and now the next challenges has been our carpet we put the first time in the living room since Deet has arrived. We got a tip to put some chili on it and it worked. After that Deet got very confused what happened to her favourite biting toy :D
 
-{{< youtube= "" >}}
+{{< youtube= "j-wShMH_oc8" >}}
 
-Other challenges has been now with ear drops. Deet got a yeast infection to her ears and it has been tricky to a) clean the ears b) add the medicine drops. We decided that we'll take our sweet time with this project because it's important to clean the ears every now and then and Deet needs to get to used to it. So we started little by little, we added some cleaning liquid to cotton and just started to touch her head and ears. Everytime it worked, we gave her treats and lot of applauses. 
+Other challenges has been now with ear drops. Deet got a yeast infection to her ears and it has been tricky to a) clean the ears b) add the medicine drops. We decided that we'll take our sweet time with this project because it's important to clean the ears every now and then and Deet needs to get to used to it. So we started little by little, we added some cleaning liquid to cotton and just started to touch her head and ears. Everytime it worked, we gave her treats and lot of applauses.
+
+First day was basically like that and on the next day I was already able to start to clean the ears inside with the cotton. So tiny steps! We don't want this to be horrible experience to Deet. 
