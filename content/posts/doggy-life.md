@@ -24,7 +24,7 @@ Milestones:
 * She has gotten excited about water; she gets crazy energy after shower or swimming
 * Everyday things work well: eating, sleeping, playing, daily walks etc.
 * We bought a dog camera and it seems like she behaves very well if we are gone.
-* It feels like Deet feels safe enough to show her real personality. And it's awesome.
+* It feels like Deet feels safe enough to show her real personality. And it's awesome.![](/images/20200821_223845.jpg)
 
 ## Everyday life works
 
@@ -34,6 +34,12 @@ Or how difficult it was to create routines for eating and going out with Deet. N
 ![](/images/img-20200820-wa0005.jpg)
 
 The potty training happened more like and accident. Deet learned to do the big business out in some point, but she peed inside the house over a month. One day she had some problem to poop and she accidentally peed outside. Her face was horrified but like that she realised it's ok :D 
+
+## We need a bigger sofa 
+
+After a month staying with us, one day, very suddenly Deet realised we have a sofa. And she loved it! Since that, she has done everything on it and she has became a real couch potato.
+
+![](/images/20200817_174255.jpg)
 
 ## Training lessons
 
