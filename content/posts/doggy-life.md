@@ -28,14 +28,14 @@ Milestones:
 
 ## Everyday life works
 
-Sometimes it's difficult to remember how scared Deet was when she arrived.   
-Or how difficult it was to create routines for eating and going out with Deet. Now, these things just work and it's huge progress. 
+Sometimes it's difficult to remember how scared Deet was when she arrived.  
+Or how difficult it was to create routines for eating and going out with Deet. Now, these things just work and it's huge progress.
 
 ![](/images/img-20200820-wa0005.jpg)
 
-The potty training happened more like and accident. Deet learned to do the big business out in some point, but she peed inside the house over a month. One day she had some problem to poop and she accidentally peed outside. Her face was horrified but like that she realised it's ok :D 
+The potty training happened more like and accident. Deet learned to do the big business out in some point, but she peed inside the house over a month. One day she had some problem to poop and she accidentally peed outside. Her face was horrified but like that she realised it's ok :D
 
-## We need a bigger sofa 
+## We need a bigger sofa
 
 After a month staying with us, one day, very suddenly Deet realised we have a sofa. And she loved it! Since that, she has done everything on it and she has became a real couch potato.
 
@@ -43,13 +43,13 @@ After a month staying with us, one day, very suddenly Deet realised we have a so
 
 ![](/images/20200821_223845.jpg)
 
-And that has been fun! It was just funny how long it took for her to find out the sofa. 
+And that has been fun! It was just funny how long it took for her to find out the sofa.
 
 ## Water monster
 
-When we took Deet near to the water first time, she wasn't interested in at all. She smelled the water ones and went away. In August, we took her to a dog park where she was able to swim at the dog's park and it was a success. 
+When we took Deet near to the water first time, she wasn't interested in at all. She smelled the water ones and went away. In August, we took her to a dog park where she was able to swim at the dog's park and it was a success.
 
-Suddenly she jumped on the water and she was happier than ever. 
+Suddenly she jumped on the water and she was happier than ever.
 
 {{< youtube= "" >}}
 
@@ -67,7 +67,7 @@ We had taught Deet some basic commands at home and she seemed to learn well and 
 
 So far Deet has become a long very well with other dogs. Sometimes, she is afraid the big dogs at the dog parks for example. She always would like to start to play with the dogs, she smells a little and in few seconds she already bends to the playing positions and asked the other dog to join. Few times, she has started to play with a big dog but in some point the game gets to harsh in her opinion and she ran behind us and wails.
 
-This week we met at the dog park with our new friend who also got the a dog from Kulkurit and we got to know each other trough the process. 
+This week we met at the dog park with our new friend who also got the a dog from Kulkurit and we got to know each other trough the process.
 
 Deet met also some other little dogs at the park and they had very good time. First Deet is excited but shy to join other dogs games like you can see from this video:
 
@@ -85,42 +85,50 @@ As we saw it from the very beginning, Deet likes to bite stuff. Carpets, pillows
 
 Other challenges has been now with ear drops. Deet got a yeast infection to her ears and it has been tricky to a) clean the ears b) add the medicine drops. We decided that we'll take our sweet time with this project because it's important to clean the ears every now and then and Deet needs to get to used to it. So we started little by little, we added some cleaning liquid to cotton and just started to touch her head and ears. Everytime it worked, we gave her treats and lot of applauses.
 
-First day was basically like that and on the next day I was already able to start to clean the ears inside with the cotton. So tiny steps! We don't want this to be horrible experience to Deet. 
+First day was basically like that and on the next day I was already able to start to clean the ears inside with the cotton. So tiny steps! We don't want this to be horrible experience to Deet.
 
 ## Life is good
 
-It's been soon 2 months since Deet arrived. She has brought us so much happiness and every day we wonder how brave and amazing dog she is. Nowadays she follows us everywhere at home, if we change the room for 2 mins, she will follow. 
+It's been soon 2 months since Deet arrived. She has brought us so much happiness and every day we wonder how brave and amazing dog she is. Nowadays she follows us everywhere at home, if we change the room for 2 mins, she will follow.
 
-Sometimes even veeery close 
+Sometimes even veeery close
 
 ![](/images/20200814_090657.jpg)![](/images/20200809_172454.jpg)![](/images/20200813_183824.jpg)![](/images/20200813_175208.jpg)![](/images/20200828_094901.jpg)
 
 ## Deet is a clever dog
 
-During this 2 months we have realised that Deet is very talented when it comes to take her own time and to estimate if something is too suspicious to her. For example, even if she spends a lot of time with us and she has gotten braver and braver all the time, she is not a dog that would run to the corridor to say hello to some visitor. She will observe the situation with her own time and space and when she is ready, she'll come to sniff and say hi to people. 
+During this 2 months we have realised that Deet is very talented when it comes to taking her own time and to estimating if something is too suspicious to her. For example, even if she spends a lot of time with us and she has gotten braver and braver all the time, she is not a dog that would run to the corridor to say hello to some visitor. She will observe the situation with her own time and space and when she is ready, she'll come to sniff and say hi to people. Also when she plays with other dogs, she takes her own breaks and tells immediately if the game is too much for her.
 
-She is still shy with other people. She approaches them more and more but it's not easy to gain the trust to pet her yet. She will move away when the hand is getting closer. 
+She is still shy with other people. She approaches them more and more but it's not easy to gain the trust to pet her yet. She will move away when the hand is getting closer.
 
-With us, she has used to almost everything and we can see every day her real temper and personality. 
+With us, she has used to almost everything and we can see every day her real temper and personality:..
 
-She knows how to chill out
+She knows how to chill out..
 
 ![](/images/20200819_120802.jpg)
 
-Or she can have craaaazy puppy energy and play for hours
+..and she can have craaaazy puppy energy and play for hours..
 
 ![](/images/20200819_202244.jpg)
 
-She can have lazy hours
+..or also some lazy moments..
 
 ![](/images/20200814_133229.jpg)
 
-She is a brave traveller
+..she loves sleeping..
+
+![](/images/20200814_231510.jpg)
+
+.. and she is a brave traveller..
 
 ![](/images/20200814_153655.jpg)
 
-She loves forest
+..and she loves forest..
 
 ![](/images/20200815_142450.jpg)
 
-But at the same time she has began to be a city dog
+..and at the same time she has began a real city dog.
+
+![](/images/20200731_140810.jpg)
+
+Overall, life with Deet is pretty awesome.
