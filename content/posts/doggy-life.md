@@ -3,7 +3,6 @@ author = "mirkka and ozz"
 categories = []
 date = 2020-08-30T09:37:00Z
 description = ""
-draft = true
 title = "Doggy life "
 type = "post"
 
@@ -51,7 +50,7 @@ When we took Deet near to the water first time, she wasn't interested in at all.
 
 Suddenly she jumped on the water and she was happier than ever.
 
-{{< youtube "" >}}
+{{< youtube "BAkSYc8TOE4" >}}
 
 ![](/images/20200809_152516.jpg)
 
